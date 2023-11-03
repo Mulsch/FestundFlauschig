@@ -1,0 +1,16 @@
+• Dauer: 1:24:07  
+• Themen: IFA, Interview Gottschalk & Jauch  
+• Moritz Bleibtreu war bei Bettina Rust und ist sehr wütend über seine Kritik an der Teilnahme bei einer McDonalds-Kampagne gewesen  
+• Olli & Jan tun so, als seien Sie auf der IFA und reden nostalgisch  
+• Regina die Schülerpraktikantin ist dabei  
+• Gottschalk & Jauch Interview wird von Jan analysiert  
+• Reden über Volker Wiprecht und dessen Auszeichnung als bester Moderator  
+• Ausführliches Gespräch in Bezug auf IFA-Thema: Geräte und Dinge in der Zukunft  
+• Olli spielt altes IFA-Interview mit schweinischem Ende ab  
+• Jan sagt 2013 schon „von den Grünen verboten“ (Minute 36:00)  
+• Jan liest erneut die Zweiraumwohnung-Kritik vor und isst einen Carazza Pizza Snack  
+• Olli gibt den Tipp, sich bei Sodbrennen den Föhn in den Rachen zu halten und Jan erzählt, dass er mal Feuerspucker werden wollte  
+• Erster Anrufer: Torben – Redet über die Zukunft von Handyapps  
+• Anschließendes Gespräch über Berliner Infrastruktur  
+• Wichtige Zwischendurchsage in der Sendung: Falschfahrer  
+• Olli will mit Anrufern über Hypnose sprechen (hat wohl Saana aus Folge 2 vergessen), es ruft aber keiner an  
