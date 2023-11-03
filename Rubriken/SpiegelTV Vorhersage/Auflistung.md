@@ -26,4 +26,4 @@
 • Folge 118 (30.08.2015)  
 • Folge 144 (06.03.2016)  
 
-*Anm.: Eine Auflistung der vorhergesagten Einzelthemen ist denkbar aber relativ schwierig. Das Anbringen eines Zeitstempels ist ggf. sinnvoll.*
+*Anm.: Eine Auflistung der vorhergesagten Einzelthemen ist denkbar aber relativ schwierig umzusetzen. Das Anbringen eines Zeitstempels ist ggf. sinnvoll.*
