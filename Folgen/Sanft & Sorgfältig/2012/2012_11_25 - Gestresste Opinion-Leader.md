@@ -1,0 +1,12 @@
+• Dauer: 1:12:51  
+• Olli ist auf Tour und verspannt, Jan massiert ihn  
+• Jan war bei Wohnungsbesichtigung von Luxusloft in Friedrichshain und die anderen Besichtigenden haben dem Makler einen Tanz vorgeführt, um ihn zu beeindrucken  
+• Erste Anruferin: Laura – Spricht mit Olli über Möglichkeiten zur Entspannung  
+• Zweite Anruferin: Sanaa – Hypnose-Spezialistin, Olli und Jan schlafen ein  
+• Jan erzählt, dass er ein Sauna-Typ ist und Olli, dass er seit einem Seniorentag nicht mehr in der Sauna war  
+• Olli erzählt von Nigerias neuer TV-Show „Nigeria sucht das Superschaf“ und einem Pferdequäler  
+• Jan erzählt, dass er sein Testikel in der Saunabank eingeklemmt hat  
+• Dritter Anrufer: Danny – Empfiehlt Olli „Hochhaus-Golf“  
+• Vierter Anrufer: Christian – Gibt Olli Übungstipps zum richtigen Atmen  
+• Olli fragt ob Jan mal im Puff war, Jan weicht der Frage aus (Erzählt die Geschichte erst viel später)  
+• Olli erzählt, dass er mit einer Sportlerin (in der verliebt war) joggen war, mithalten wollte und gekotzt hat (war unangenehm)  
