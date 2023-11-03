@@ -1,1 +1,3 @@
-
+- Dauer: 1:06:23
+- Erste offizielle Fest und Flauschig Sendung
+- 
