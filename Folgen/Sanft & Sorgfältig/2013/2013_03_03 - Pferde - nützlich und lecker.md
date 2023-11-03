@@ -10,6 +10,6 @@
 • Diskussion über Werner Böhms Autobiografie  
 • Jan hat Beth Ditto getroffen  
 • Dritte Anruferin: Aileen – Weiß zu keinem Thema etwas beizutragen  
-!• Olli erwähnt zum ersten Mal Bifi-Mike  
+**• Olli erwähnt zum ersten Mal Bifi-Mike**  
 • Olli regt sich zum Abschluss über Facebook und Social Media auf  
 • Letzte Anruferin: Eva – Mag Facebook auch nicht, ist aber die beste Anruferin der Sendung  
