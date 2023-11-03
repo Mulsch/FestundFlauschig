@@ -7,7 +7,7 @@
 • Zweiter Anrufer: Tim – Ein anderer Tim, war wählen, fragt, ob Jan sein Wahlversprechen (Wählen gehen) eingelöst hat. Jan erzählt, dass er alle großen Parteien gut findet und deswegen Stimmensplitting gemacht hat  
 • Olli war im Zoo und hat Robben und Walrosse beobachtet  
 • Olli und Jan reden über die Assoziation zwischen Tieren und Nationalitäten   
-	o Olli fragt Jan: Reh – Belgien, Ente - Dänemark, Möwe - Italien, Ratte – Frankreich  
+        o Olli fragt Jan: Reh – Belgien, Ente - Dänemark, Möwe - Italien, Ratte – Frankreich  
 	o Jan fragt Olli: Braunbär - Russland, Elch – Belgien  
 • Olli fragt, ob es unter den Tieren auch “Ladyboys” gibt, der Delfin ist für ihn z.B. ein schwuler Fisch  
 • Jan fragt “Warum gibt es eigentlich keine Straight Parade?” (Minute 36:00)  
