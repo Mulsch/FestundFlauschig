@@ -11,7 +11,10 @@
 - Jan und Olli waren bei Zimmer frei![^2] [^3]
 - Jan redet über die WDR Sendung "Ihre Meinung"[^4] und regt sich über den Inhalt auf, hat es aber dennoch lange geguckt
 - Olli und Nora Tschirner waren bei Circus Halligalli beim Aushalten - Nicht lachen
-- 
+- Einspielerdebüt: "Er wollte ballern"
+- Gespräch über Jans TV-Comeback nach der Erdogan-Affäre und weitere Eindrücke dieser Phase
+  - Olli glaubt, dass Jan von Peter Altmaier in die Pfanne gehauen wurde
+- Olli gedenkt Peter Behrens von Trio
 
 
 
