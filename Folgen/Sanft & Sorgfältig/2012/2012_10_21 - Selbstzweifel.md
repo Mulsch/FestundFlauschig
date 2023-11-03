@@ -1,0 +1,8 @@
+• Dauer: 1:02:06  
+• Themen der Sendung: Selbstzweifel & Egoprobleme, Olli’s Traum als Zaubertrick-Durchschauer, Berliner Flughafen, Olli reißt am Strand die Badehose und er lernt Orangen zu jonglieren  
+• Erster Anrufer: Thomas – Redet über Insta-Selfies und Biologieunterricht  
+• Zweiter Anrufer: Peter – Redet über Maronen  
+• Konferenz mit Anna (dritte Anruferin)  
+• Vierter Anrufer: „Micky Gonzo“, will aber nur Gonzo genannt werden (hat aufgemuckt, wurde weggedrückt von Jan)  
+• Anna ist immer noch in der Leitung, Olli will unbedingt ihr Gewicht wissen  
+• Fünfter Anrufer: Ulli Zelle  
