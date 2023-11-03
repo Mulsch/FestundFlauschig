@@ -1,1 +1,12 @@
-
+- „Braunkohlefelder” in Sachsen-Anhalt (ZaH, FC9, 48:20)
+- „Reiner Ostsender, spucken auf Wessis“ (S&S, F19, 14:30)
+- Hochwasser in Magdeburg wird mehrmals erwähnt (S&S, F24, 2:30 und 18:30)
+- Olli hat schon viele Konzerte in Magdeburg gespielt und mag die Leute sehr gerne (S&S, F24, 19:00)
+- „Nazis helfen mit in Magdeburg“ (S&S, F24, 41:00)
+- Jan entschuldigt sich bei allen Magdeburgern, sagt aber, dass er die Stadt nicht mag (S&S, F25, 1:05:00)
+- Jan war auf seiner Tour in Magdeburg (S&S, F57, 1:02:00)
+- Sachsen-Anhalt auf Platz 5 der großen Fünf (S&S, F68, 44:00)
+- Olli ist mit seinem Kumpel in ein Hotel in Magdeburg gefahren (S&S, F77, 08:30)
+- Olli erwähnt Magdeburg bei seinen Aufzählungen ostdeutscher Städte (S&S, F82, 26:00)
+- In Folge 118 wäre fast ein „Die Großen Fünf Ostdeutschen Kleinstädte“ entstanden
+- Jan sagt in Folge 118 „Halberstadt“ (ca. 1:18:30)
