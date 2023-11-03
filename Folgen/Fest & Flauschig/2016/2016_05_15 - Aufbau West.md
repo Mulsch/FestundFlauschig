@@ -26,6 +26,8 @@
 - Olli bekommt von einem Kumpel einen Schuhschrank aufgebaut und redet ausführlich über Schuhe und Ordnung ("Schuhe sind der Tempel zur Seele")
 - Jan und Olli tauschen sich über Füße und Hände aus, Olli regt sich über Römersandalen und Mokkasins auf
 - Olli schlägt vor "Die Großen Fünf" in "Die Heiligen Drei" umzubenennen, hat sogar einen Jingle vorbereitet, dieser wird jedoch nie abgespielt
+- Beide werten zum Abschluss ihre erste Sendung bei Spotify aus, Jan macht Werbung für Twitter und Facebook
+- Jan möchte ein Trend-Getränk erfinden und Olli hat Angst, dass Jan sich mit Ken Jebsen zusammen tut
 
 [^1]: Wiener Conditorei Caffeehaus, Hohenzollerndamm 92, 14199 Berlin
 [^2]: https://www.youtube.com/watch?v=TotZVNtfk5w
