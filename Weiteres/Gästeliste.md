@@ -1,1 +1,13 @@
-
+- Joko Winterscheidt (am Telefon) - Folge 4
+- Ulla Meinecke (am Telefon) - Folge 24
+- Thees Uhlmann – Folge 30
+- Serdar Somuncu (am Telefon) - Folge 33
+- Sibylle Berg (am Telefon) - Folge 34
+- Bjarne Mädel (am Telefon) – Folge 64
+- Serdar Somuncu (am Telefon) - Folge 79
+- Bjarne Mädel – Folge 96
+- Peter Fox – Folge 99
+- Matthias Brandt – Folge 106
+- Tom Schilling – Folge 110
+- Dr. Peter Vajkoczy – Folge 126
+- Nora Tschirner – Folge 138
