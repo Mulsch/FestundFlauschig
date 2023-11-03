@@ -1,6 +1,6 @@
 **Hinzugefügt von Jan:**
 - 15.05.2016: Herman van Veen - Jemand stiehlt die Show
-- xx
+- 15.05.2016: Beginner - Gustav Gans
   
 **Hinzugefügt von Olli:**
 - xx
