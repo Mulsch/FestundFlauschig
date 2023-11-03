@@ -8,8 +8,10 @@
 - **Einführung der Fidi & Bumsi Playlist**
 - Jan will über den Erdogan-Skandal auspacken, aber Jan zügelt ihn
 - Olli kauft in der selben Konditorei Kuchen wie Angela Merkel[^1]
+- Jan und Olli waren bei Zimmer frei![^2][^3]
 
 
 
-
-  [^1] Wiener Conditorei Caffeehaus, Hohenzollerndamm 92, 14199 Berlin
+[^1]: Wiener Conditorei Caffeehaus, Hohenzollerndamm 92, 14199 Berlin
+[^2]: https://www.youtube.com/watch?v=TotZVNtfk5w
+[^3]https://www.youtube.com/watch?v=b8kV6zxs1GI
