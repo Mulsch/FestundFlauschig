@@ -4,7 +4,7 @@
 • Jan erzählt, dass Adeligen in Wasser ein neuer Adeliger aus dem Rücken wächst  
 • Erster Anrufer: Thomas – Unterhalten sich über das Verhältnis zwischen Löwen und Zebras, Kaninchensex. Thomas ist sehr mit der Natur verbunden und will nur noch Obst und Gemüse der Saison kaufen und macht abends das Licht aus  
 • Olli will Obst durch Nahrungsergänzungsmittel ersetzen  
-• “Negerküsse darf man ja nicht mehr sagen” - Bereits 2013 (Was auch richtig so ist, Anm. d. Red.)  
+• “Negerküsse darf man ja nicht mehr sagen” - Bereits 2013 (*Was auch richtig so ist, Anm. d. Red.*)  
 • Zweiter Anrufer: Peter – Ist sehr wortkarg  
 • Rubrikdebüt: Entweder/Oder - Sonst foltern dich die Taliban  
 • Jan macht eine Zeitreise ins Jahr 1990  
