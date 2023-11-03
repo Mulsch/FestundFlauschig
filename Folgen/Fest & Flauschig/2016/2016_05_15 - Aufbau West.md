@@ -6,3 +6,10 @@
 - Erste Erwähnung von "Daniel von Spotify" (ca. 6:00)
 - Olli erzählt von einer Entwicklungshelferin aus Afrika, die die Sendung hört  
 - **Einführung der Fidi & Bumsi Playlist**
+- Jan will über den Erdogan-Skandal auspacken, aber Jan zügelt ihn
+- Olli kauft in der selben Konditorei Kuchen wie Angela Merkel[^1]
+
+
+
+
+  [^1] Wiener Conditorei Caffeehaus, Hohenzollerndamm 92, 14199 Berlin
