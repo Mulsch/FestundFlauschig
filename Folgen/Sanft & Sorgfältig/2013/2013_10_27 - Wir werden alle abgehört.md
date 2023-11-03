@@ -1,0 +1,14 @@
+• Dauer: 1:24:38  
+• Olli regt sich gleich zu Beginn über Formel 1 auf  
+• Hauptthema: Abhörskandal bei Angela Merkel  
+• Olli erzählt, dass er mit 6 Fingern an jeder Hand geboren wurde und ihm 2 nach der Geburt amputiert wurden  
+• Erster Anrufer: André – Erzählt, dass er Blinden Weingummis gestohlen hat, Freundin kichert im Hintergrund  
+• Olli macht sich über Markus Lanz lustig  
+• Olli und Jan bereden, wen sie abhören wollen würden  
+• Gespräch über Jans „Hochzeit“ mit Elton, Moritz Bleibtreu, Bushido  
+• Zweiter Anrufer: Frank – „Marathon-Frank“ (s. Folge 34)  
+• Olli erzählt von witziger Begegnung mit Spinner in Kreuzberg  
+• Jan und Olli überlegen sich, Tatort Kommissare zu werden  
+• Jan redet wieder über seine neue Show, Olli Welke wird zu Gast sein  
+• Olli braucht ein neues Bett und lässt sich von Jan Tipps geben  
+• Letzter Anrufer: Jens – Gibt Olli Tipp, bei eBay Kleinanzeigen zu schauen (nach Bett mit Motor)  
