@@ -1,0 +1,5 @@
+•	Tipp #1: „Alte Sachen so lange tragen, bis sie wieder cool sind und in Plastiktüten aufbewahren, um sich ab und zu überraschen zu können, was man mal so gekauft hat“ (Folge v. 09.12.2012)   
+•	Tipp #2: „Männerleggins mit Sticker bekleben“ (Folge v. 14.04.2013)  
+•	Tipp #3: „Schuhe, Socken und Hose weglassen und einfach umherhüpfen“ (Folge v. 02.06.2013)  
+•	Tipp #4: „Fußballtrikots tragen im Sommer, dazu Kniestrümpfe und Slipper“ (Folge v. 18.05.2014)  
+•	Tipp #5: „T-Shirt tragen und mit Edding die Namen aller Freunde draufschreiben“ (Folge v. 01.06.2014)   
