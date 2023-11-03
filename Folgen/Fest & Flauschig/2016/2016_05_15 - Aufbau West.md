@@ -1,5 +1,4 @@
 - Dauer: 1:06:23  
-- -Titelerklärung:
 - Erste offizielle Fest und Flauschig Sendung
 - Ausführliches (aber auch sehr humoristisches/ironisches) Gespräch über das Ende von Sanft & Sorgfältig
 - Olli ist ein wenig nachtragend und will auf Radio Eins rumhacken
