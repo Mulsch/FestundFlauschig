@@ -33,6 +33,6 @@
 [^2]: https://www.youtube.com/watch?v=TotZVNtfk5w
 [^3]: https://www.youtube.com/watch?v=b8kV6zxs1GI
 [^4]: https://de.wikipedia.org/wiki/Ihre_Meinung
-[^5]: Link einfügen!
-[^6]: Link einfügen!
-[^7]: Link einfügen!
+[^5]: https://www.youtube.com/watch?v=eKXWenUebp0
+[^6]: https://www.youtube.com/watch?v=G5uNrtuQ_8Q
+[^7]: https://youtu.be/E5zedC0A8YE?si=70HqEZvhWow4VSeE&t=503
