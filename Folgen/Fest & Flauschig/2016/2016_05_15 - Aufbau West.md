@@ -6,7 +6,7 @@
 - Erste Erwähnung von "Daniel von Spotify" (ca. 6:00)
 - Olli erzählt von einer Entwicklungshelferin aus Afrika, die die Sendung hört  
 - **Einführung der Fidi & Bumsi Playlist**, Jan erzählt von seiner Wunschvorstellung, die Playlist mit dem Podcast zu kombinieren (*was leider nie wirklich funktionierte, Anm. d. Red.*)
-- Jan will über den Erdogan-Skandal auspacken, aber Jan zügelt ihn
+- Jan will über den Erdogan-Skandal auspacken, aber Olli zügelt ihn
 - Olli kauft in der selben Konditorei Kuchen wie Angela Merkel[^1]
 - Jan und Olli waren bei Zimmer frei![^2] [^3]
 - Jan redet über die WDR Sendung "Ihre Meinung"[^4] und regt sich über den Inhalt auf, hat es aber dennoch lange geguckt
