@@ -1,0 +1,13 @@
+- Dauer: 1:13:31
+- Olli ist 3x geblitzt worden, Jan wurde abgemahnt
+- Gespräch über Harald Ewert (Nazi mit dem Pissfleck) und das Copyright-Dilemma
+- Olli erzählt zum ersten Mal, wie ihm zwei Zähne auf der Reeperbahn ausgeschlagen wurden (Olli war zu faul, ihn zu verklagen)
+- Olli redet von seinem Talkshow Auftritt bei Judith Rakers und Giovanni Di Lorenzo
+- Tod vom König von Saudi-Arabien und Rücktritt von Lutz Bachmann als PEGIDA-Chef werden kurz angesprochen
+- Olli hat den „Wendelin“ von vor zwei Wochen bekommen und sucht jetzt nur noch den blauen Klaus (s. Folge 91)
+- Jan erzählt von seinem neuen Van
+- Gespräche über Haartransplantationen, die Absetzung des Deutschen Fernsehpreises
+- Olli und Jan erfinden den Vorhang für Untenrum
+- Olli streitet sich mit Jan, Musik muss gespielt werden (wegen Schuh des Manitu)
+- SpiegelTV-Vorhersage fällt aus
+- Erste Gespräche über Dinge, die nach einem benannt werden (später: Olli-Schulz-Fußballplatz)

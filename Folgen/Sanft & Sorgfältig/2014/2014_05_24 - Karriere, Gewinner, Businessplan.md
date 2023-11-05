@@ -1,0 +1,12 @@
+- Dauer: 1:19:14
+- Einspielerdebüt: „Ja schenk ein, das Ding!“
+- Erste bundesweite Sendung
+- Jan erzählt, wie er schon wieder ein Stück Dönerfleisch durch die Nase 
+- Gespräch wie Olli einen Fan an der Tanke angeblöfft hat
+- Jan war im Rindfleisch-Krustentier-Superofen-Spezialrestaurant
+- Jan erzählt vom Frauke Ludowig Zombie
+- Jan redet über Julia Engelmanns Poetry Slam und Gefängnisausbrüche
+- Olli spielt „Die Kritische Hörerstimme“
+- Gespräch über „Verstehen Sie Spaß?“
+- Olli spielt Einspieler von Motivationstrainer, der Olli beim Rauchen aufhören half
+- Es ist Europawahl, Olli geht nicht wählen und Jan hat’s vergessen

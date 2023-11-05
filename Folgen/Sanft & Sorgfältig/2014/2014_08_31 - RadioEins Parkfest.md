@@ -1,0 +1,12 @@
+- Dauer: 1:34:53
+- Zweite Live-Sendung
+- Jan hat Augenprobleme entwickelt und Olli hat in der Sommerpause bei „Bibi und Tina 2“ als Bösewicht mitgewirkt
+- Olli geht ins Publikum und fragt nach dem Sommerurlaub
+- Gespräch über die Absetzung von Spiegel TV
+- Olli und Jan haben nach 30min schon Probleme, Themen zu finden und reden über Ollis Pupsluft bei der ersten Sendung
+- Olli hat seine Gitarre dabei und will Lieder spielen, Jan improvisiert Gesang dazu
+- Olli erzählt, dass „Schulz in the Box“ für den deutschen Fernsehpreis nominiert ist
+- Olli erzählt, wie er sich damals an einem Fast Food Mitarbeiter rächen wollte, in dem er ihm einen Sack voll Scheiße in die Fritteuse wirft
+- Jan stellt seine Idee „Haul Hitler“ vor
+- Olli und Jan singen im Duett, Jan mit Shaggy-Stimme
+- Robert Skuppin kommt für die letzten Minuten auf die Bühne

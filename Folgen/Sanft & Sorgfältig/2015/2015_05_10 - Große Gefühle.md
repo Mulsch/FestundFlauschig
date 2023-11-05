@@ -1,0 +1,11 @@
+- Dauer: 1:13:48
+- Es ist Muttertag, beide sind sehr emotional
+- Gespräche über die Reichskanzlei und das Krisenmanagement der Bundeskanzlerin (Abhöraffäre)
+- Jan erzählt Jugendgeschichte, wo er von einem Werder Bremen Fußballspiel berichten sollte & Werder Meister wurde (Jan sagt Bremen als Meister 2017 voraus)
+- Olli hat neuen Einspieler von Natascha Ochsenknechts Nagel-Marke
+- König-Drosselbart-Einspieler
+- Jan hat Kommissar-Ärmchen-Zeichnung für Olli
+- Gespräche über eBay-Auktionen
+- Olli erzählt von seinem Besuch bei Ina Müller (Die beiden beschließen, sie einzuladen -> s. Folge 115)
+- Gespräch über Elektroautos
+- Abschlussgespräch über Schule und Kindererziehung

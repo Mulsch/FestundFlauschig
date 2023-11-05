@@ -1,0 +1,7 @@
+- Dauer: 1:17:41
+- Anfangsgespräche über diverse Erziehungsthemen und Schulanekdoten (Lehrer hat sich mit Schülern geprügelt)
+- Olli erzählt über „Den Schwarzen Mann“
+- Olli erzählt eine alte Jugendliebe-Geschichte mit „der Maus“
+- Olli fährt zum DFB Pokal (Dortmund vs Wolfsburg) und war im Borchert‘s
+- Gespräch über Fußball-Spieler
+- Olli hasst Bierbikes

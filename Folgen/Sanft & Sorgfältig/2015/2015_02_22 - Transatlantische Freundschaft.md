@@ -1,0 +1,9 @@
+- Dauer: 1:05:48
+- Olli ist noch in Venice Beach und hat Rückenschmerzen
+- Gespräch über möglichen Flugzeugabsturz von Olli auf dem Rückflug
+- Gespräche über Til Schweigers Streit mit dem SPIEGEL, Herbert Grönemeyers Streit mit der Bild und Promi-Einsprechern in der Berliner U-Bahn
+- Ollis Lieblingsburgerkette in den USA: In-N-Out
+- Gespräche über die Serien „Better Call Saul“ und „Bosch“ und Ketamin
+- Jan würde gerne mal einen Musiker in die Sendung einladen (siehe Folge 99)
+- Jan liest die Abmahnung von Grönemeyer gegen Kai Diekmann vor, Olli schmeißt währenddessen sein Getränk um und muss pausieren
+- Gespräche über Bekanntschaften, die den jeweils anderen nicht leiden können und Ollis Nachfolger bei „In the Box“

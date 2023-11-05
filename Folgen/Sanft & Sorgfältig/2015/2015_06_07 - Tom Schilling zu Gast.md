@@ -1,0 +1,8 @@
+- Dauer: 1:16:12
+- Tom Schilling ist zu Gast, Thema der Sendung: Narzissmus
+- Olli: „Mutter Theresa war todesgeil, hab ich in der Biografie von Thomas Gottschalk gelesen“
+- Jan bespricht Olli und seine geheime Facebook Gruppe und lädt Tom Schilling ein
+- Jan: „Die Anzahl der Follikel ist immer gleich“
+- Olli stellt sein Drehbuch vor
+- Gespräche über Hitler und Jans Filmidee (Jurassic Park in Deutschland)
+- Olli erzählt von seinem Stress mit einem Fotografen

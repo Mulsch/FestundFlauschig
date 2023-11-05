@@ -1,0 +1,11 @@
+- Dauer: 1:15:38
+- Charlie Hebdo Anschläge sollen nicht thematisiert werden, stattdessen Startgespräch über Kochen und Lebensmittel
+- Gespräch über Winter Sport, Olli erfindet „Edward Snowboarder“
+- Werner Brösels flutbares Wohnzimmer wird wieder thematisiert (und von der Frau von Brösel bestätigt)
+- Jan redet über den Bachelor und einen Hautausschlag
+- Jan erzählt, wie er Harald Schmidt beim Arzt getroffen hat
+- Olli fand Hangover gar nicht gut
+- Gespräch über Käse, Jan ist kein Fan von Ziegenkäse – Olli erzählt Geschichte, wie ihm eine Verkäuferin eine weirde Geschichte mehrmals erzählt hat und er deswegen nicht mehr hingeht
+- Gespräch über Schweinesülze, Olli und Jan erfinden den neuen Til Schweiger Film „Wimper im Gelee“
+- SpiegelTV-Vorhersage
+- Olli bringt einen Analverkehr-Witz, Jan zweifelt, ob der rausgeschnitten wird

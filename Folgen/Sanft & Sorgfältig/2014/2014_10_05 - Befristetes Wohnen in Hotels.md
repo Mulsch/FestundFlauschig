@@ -1,0 +1,12 @@
+- Dauer: 1:00:52
+- Olli erzählt von seinem bakteriellen Infekt in der vergangenen Woche
+- Jan gratuliert Olli zum Deutschen Fernsehpreis, da will Olli aber erst nächste Woche drüber sprechen
+- Olli erzählt Geschichte von stinkendem Geruch in Hotel, stellte sich später heraus, dass es ein Buttersäureanschlag war und Olli zum Verhör musste
+- Beide tauschen Hotelgeschichten aus, Jan erzählt, wie er allein auf Fuerte Ventura war und sexuell belästigt wurde
+- Diskussion über das N-Wort, Olli erzählt von einem Streit mit einem Schaffner
+- Einspielerdebüt: „Schwänze fressen“
+- Einspielerdebüt: „Wendler und die Intellektuellen“
+- Gespräch über Krieg und Fußball, Jan spielt ein DDR-Kinderlied über Krieg ein
+- Es folgen weitere Geschichten aus Hotels (Ollis Geburtstag im SOHO House, Jan in NYC)
+- Olli lästert über Udo Jürgens, Jan setzt ihn versehentlich mit Ted Bundy und Jeffrey Dahmer gleich
+- Jan und Olli loben ServusTV

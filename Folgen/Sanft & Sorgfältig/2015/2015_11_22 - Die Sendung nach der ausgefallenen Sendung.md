@@ -1,0 +1,11 @@
+- Dauer: 1:13:49
+- Die letzte Sendung wurde vor dem Pariser Terroranschlag aufgezeichnet und aufgrund der etwas makabren Thematik der Sendung (Tod und Trauer) nicht ausgestrahlt -> siehe Folge 140
+- Gespräch über Jans heimliche Beziehung mit Susanne Wündisch
+- Pariser Anschlag wird besprochen und „analysiert“
+- Jan liest einen Leserbrief vor (Luftballon-Fetisch)
+- Gespräche über Xavier Naidoo und Moses Pelham
+- Beide besprechen ihre Grünkohlrezepte
+- Telefonat mit 1000-Mark-André
+- Gespräche über Zimmer frei! und Inas Nacht
+- Olli sagt etwas sehr versautes, was herausgeschnitten werden musste
+- Gespräch über Charlie Sheens HIV-Erkrankung

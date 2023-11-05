@@ -1,0 +1,6 @@
+- Dauer: 1:10:27
+- Jan gibt Tipps, wie man das Niesen verdrücken kann
+- Gespräch über Adidas
+- Telefonat mit Marek
+- Olli erzählt witzige Falafel-Geschichte
+- Fidi & Bumsi tauchen am Ende auf
