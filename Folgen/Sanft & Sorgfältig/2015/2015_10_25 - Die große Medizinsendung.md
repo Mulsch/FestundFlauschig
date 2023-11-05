@@ -1,0 +1,7 @@
+- Dauer: 1:14:56
+- Anfangsgespräch über die Schwarzwaldklinik
+- Gast: Dr. Peter Vajkoczy
+- „Es gibt nichts Ästhetischeres als das Gehirn.“ – Peter Vajkoczy
+- Interessante Gespräche über den Alltag eines Gehirnchirurgen
+- Die Geschichte von Jans Selfie im Kino wurde auf Facebook hochgekocht
+- Gast geht kurz vor Ende, sodass Nachbesprechung erfolgen kann

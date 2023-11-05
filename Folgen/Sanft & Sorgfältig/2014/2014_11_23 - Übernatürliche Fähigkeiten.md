@@ -1,0 +1,12 @@
+- Dauer: 1:15:28
+- Diese Sendung markiert den Beginn der Sendungen, in denen Olli sein Handy vergisst, stummzustellen
+- Beide sind gut drauf, Olli sitzt im Keller einer Rundfunkanstalt
+- Gespräch über Flers Gerichtsprozess und Morrissey
+- Gespräch über die Äußerungen des damaligen ZDF-Intendanten über Jan
+- Beide erfinden die „Roadie-Gerichte“
+- Olli war mit den Scorpions bei einer Buchvorstellung und wurde von diesen zu einem Konzert eingeladen
+- Beide reden über Gore-Videos
+- Ollis Produktmanagerin ruft an, Olli erwähnt wieder sein Kochbuch für Hunde (s. Folge 10, 13, 23, 35)
+- Olli erzählt von seiner Idee, eine Arztpraxis zu eröffnen, für Leute, die mal blau machen wollen
+- Gespräch über „Die Anstalt“
+- SpiegelTV-Vorhersage

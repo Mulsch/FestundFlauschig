@@ -1,0 +1,13 @@
+- Dauer: 1:17:02
+- Soll heute nur um positive Dinge gehen, weil die letzte Sendung den Leuten Angst gemacht hat
+- Olli erzählt zu Beginn eine Story, die er bei McDonald’s erlebt hat (von der Kassiererin an der Stimme erkannt), Jan erzählt von seiner neuen Dunstabzugshaube
+- Gespräch über das neue iPhone 6 (Olli hat das iPhone 5)
+- Jan hat Dokumentation über Alice Cooper und seinen Mentor gesehen
+!- Jan und Olli verabreden sich zum Grünkohl Wettbewerb
+- Jan erklärt die Herkunft der Sprichwörter „Augenschmaus“ und „Alles in Butter“
+- Olli verwechselt Helene Fischer mit Andreas Bourani, anschließendes Gespräch über Andreas Gabalier
+- Olli lästert über Udo Jürgens und seine Teilnahme beim Bundesvision Song Contest
+- Jan hat zum ersten Mal Burrata Mozzarella gegessen
+- Gespräch über Andrea Berg und die verschiedenen Medienpreise Deutschlands
+- SpiegelTV-Vorhersage
+- Fidi und Bumsi kommen am Ende

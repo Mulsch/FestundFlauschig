@@ -1,0 +1,16 @@
+- Dauer: 1:26:06
+- Eine Woche Pause zwischen den Sendungen, die beiden entschuldigen sich
+- Gespräch über Jan, der Stefan Raab reingelegt hat
+- Jan liest Kritik an Ollis Auftritt vor
+- Erster Anrufer: Rias – Spricht über Kommerzialisierung von Elektromobilität und Jans polnische Herkunft
+!- Rias fragt, woher der Sendungstitel kommt, Jan sagt, dass das von Jürgen König kam und sie mit dem Titel nichts verbinden
+- Alternativer Titel von Olli: „Olli und das Bö“
+- Olli erzählt, wie er Jenny Elvers als Bühnentechniker unter den Rock geguckt hat
+- Diskussion über Echo-Verleihung und Helene Fischer (inkl. Tattoo von Florian Silbereisen)
+- Olli redet über das Problem der Drogensucht und Jans Sucht nach Chips und Cola
+- Olli und Jan sind beide am selben Ort und spielen ihr Programm, wollen sich vielleicht danach treffen
+- Witziges Gespräch über Peter Maffay, Olli und Jan geben außerdem ihre Quizduell Namen frei
+- Jan liest Kritik an Ollis Platte vor
+- Jan erzählt, dass Hitler angeblich in Magdeburg begraben wurde
+- Erste Anruferin: Franziska – Gewinnt Karten für Ollis Show
+- SpiegelTV-Vorhersage

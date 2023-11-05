@@ -1,0 +1,9 @@
+- Dauer: 1:08:39
+- Thema: Unschuld des Menschen
+- Anfangsgespräche über Moderatoren (Lanz, Kerner, Anne Will) und Autobiografien
+- Kritik am Schmatzen wird erneut besprochen
+- Gespräch über den Qualitätsmangel in der deutschen Bäckerlandschaft
+- Festivals werden besprochen, Olli ist gerade beim Hurricane
+- Gespräch über alte Radio-Legenden und Anekdoten
+- Gespräch über Werner Herzog und seine 25 Regeln
+- Fidi und Bumsi tauchen auf (zuletzt Folge 100)

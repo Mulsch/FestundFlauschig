@@ -1,0 +1,10 @@
+- Dauer: 1:09:09
+- Olli und Jan sind beide erkältet
+- Beide sprechen über ihre gegenseitige „Liebes“beziehung
+- Olli gratuliert Jan zur neuen Sendung
+- Sendung soll Beziehungsratgeber werden
+- Olli erzählt, wie er sich in eine Theaterschauspielerin verliebt hat
+- Olli erwähnt Bifi-Make und Lars Eggers (s. Folge 66)
+- Beide reden über Paartherapie
+- Beide lassen sich über (Comedy-)Sendungen aus, die sie schon immer doof fanden
+- Serdar Somuncu wird angerufen, wirkt aber ziemlich angepisst

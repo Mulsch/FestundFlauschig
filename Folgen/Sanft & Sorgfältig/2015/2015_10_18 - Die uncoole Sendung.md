@@ -1,0 +1,18 @@
+- Dauer: 1:17:48
+- Olli ist gut gelaunt, Jan eher nicht so
+- Jan hatte ursprünglich keinen Bock auf die Sendung und wollte mit Auto wieder abhauen, Susanne Wündisch hat ihn zurückgeholt
+- Gespräch über persönliche Daten im Internet
+- Olli wurde von zwei Fans angesprochen, Gespräch über alternative Jobmöglichkeiten außerhalb der Öffentlichkeit (Jan wäre Arzt oder „richtiger Journalist“, Olli wäre Lotto-König)
+- Gespräch über alte Bravo-Ausgaben und Dr. Sommer, Jan hat Zeitungen aus den 70ern mitgebracht (Olli: „Herr Dr. Sommer, mir wächst da ein Shrimp zwischen den Beinen. – Nein, das ist dein Kitzler.“)
+- Gespräch über Horrorfilm „Der Exorzist“ (Jan ist kein Horrorfilm-Fan)
+- Jan: „Der hat sich erst später als schwerst homosexuell geoutet.“
+- Gespräch über Kölner Karneval (Jan: „Ich ging aus dem Haus und trat in einen Haufen Menschenkot, an dem der Mensch noch dranhing.“)
+- Gespräch über Queen und Songwriter
+- Gespräch (durch die BRAVO) über Kindererziehung, z.B. das Beklauen der Eltern
+- Jan bespricht den Film „Der Marsianer“, wurde nach dem Kino unangenehm angesprochen und zum Selfie gezwungen
+- Jan hat den Podcast-Logo-Designer, Susanne (mit der Arztgeschichte) und ein Typ aus dem ZDF-Foyer (David)
+- Olli hat Hans Borghorst eingeladen
+- Jan erzählt, wie ein Taxifahrer ihn zum Islam bekehren wollte
+- Olli erklärt den Ursprung des Wortes „onanieren“
+- Ausführliches Gespräch über Meinungs- und Satirefreiheit
+- Olli erzählt wieder seine Helge Schneider Geschichte (s. Folge 120)

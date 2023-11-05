@@ -1,0 +1,12 @@
+- Dauer: 1:03:15
+- Olli und Jan essen zu Beginn, Jan kündigt seinen Geburtstag an
+- Anfangsgespräche über Essen/Lebensmittel, Günther Jauch und Veronica Ferres
+- Humorhafte Diskussion über alternative Jobs
+- Jan hat Blutblase am Finger vom Wassermaschinentragen und erzählt von Sportverletzungen
+- Olli plaudert aus dem Nähkästchen
+- Olli und Jan führen tiefe Gespräche über den Tod und Beerdigungen
+- Jan erzählt von ersten Erfahrungen mit E-Autos
+- Jan erzählt, dass er als Schöffe ausgeschieden ist und wird erneut dafür
+- Jan will in die Gastronie gehen (s. später -> Böhmi bruzzelt)
+- Olli diktiert Jan eine E-Mail und will die Sendung mit Bettina Rust übernehmen
+- Redakteur Jakob imitiert am Ende andere Radio 1 – Moderatoren

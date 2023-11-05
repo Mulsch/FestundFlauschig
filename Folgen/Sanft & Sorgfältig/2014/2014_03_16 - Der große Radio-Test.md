@@ -1,0 +1,11 @@
+- Dauer: 58:03
+- Schülerpraktikant (Luca) von Antenne Brandenburg ist da und sitzt im Hintergrund (deswegen jugendfreie Sendung)
+- Olli fragt Luca nach der Verwahrlosung der Jugend und Miley Cyrus
+- Olli macht Foto und gibt ein Autogramm, macht Musik-Ratespiel – Luca findet Rihanna und Shakira cool
+- Olli und Jan unterhalten sich über die Jugend und Auswirkungen der weggefallenen Wehrpflicht
+- Jan erzählt Geschichte vom Zivildienst, wie er von einer Oma bekotzt wurde
+- Olli und Jan fantasieren Quatschgeschichten über die deutsche Geschichte
+- Olli erzählt private Geschichte aus finanziell schwierigen Zeiten
+- Nennen sich zum ersten Mal „Podcast“
+- Diskussionen über DJ Bobo (Olli ist kein Fan) und Mode
+- Tieferes Gespräch über fehlende Zukunftsvisionen, Jan lenkt ab und redet über Bauchnabelfusseln

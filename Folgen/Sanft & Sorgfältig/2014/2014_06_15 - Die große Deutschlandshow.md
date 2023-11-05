@@ -1,0 +1,11 @@
+- Dauer: 1:21:40
+- Gespräche über die Fußball-WM
+- Thema der Sendung: „Warum Deutschland das geilste Land der Welt ist“
+- SpiegelTV-Vorhersage
+- Olli findet Nordkorea doof
+- Olli und Jan lesen Hate-Kommentare vor
+- Olli fragt Jan nach „DasDing“-Fragebogen
+- Olli hat von Hörerin Vanessa „Mumus“ geschickt bekommen
+- Olli fragt „Meinst du, wir werden Weltmeister dieses Jahr“ – Jan: „Auf jeden Fall!“
+- Jan hat Frank Elsner getroffen
+- Olli erzählt von der Verschwörungstheoretikerin und Künstlerin bei der er zur Zeit von 9/11 in Bremen gewohnt hat

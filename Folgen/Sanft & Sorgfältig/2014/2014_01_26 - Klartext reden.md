@@ -1,0 +1,17 @@
+- Dauer: 1:26:20
+- Ron Schulz und Berni Böhmermann stellen sich vor (Brüder der beiden)
+- Gespräch über Lanz-Petition (Wollen nicht viel zu sagen)
+- Olli erzählt von seinem Usain Bolt Zombietraum und Rosenstolz
+- Diskussion über Jans Poetry-Slam-Satire und Edward Snowden
+- Erste Anruferin: Laura – Ist Model, Olli macht etwas anzügliche Vorschläge
+- Zweiter Anrufer: Florian – Redet über gemeine Omas (Ausnutzen vom “Alt-Sein”)
+- Rückkehr der großen Fünf
+- Dritter Anrufer: Markus – Wird abgewimmelt wegen Pause
+- Olli fragt die Zuhörer nach dem “Muhmuh”-Riegel
+- Vierter Anrufer: Marek – Pole aus Folge 49 ruft wieder an, redet über Sahne-Muhmuhs und traditionellen Wurstkonsum
+- Fünfte Anruferin: Kira – Gibt Tipps, wo es Ollis Schokoriegel gibt (Banjo, Nappos)
+- Siebte Anruferin: Tina – Hat eine tiefe Stimme, findet Olli toll, wird von Jan weggedrückt. Marek ist immer noch am Telefon
+- Achte Anruferin: Christina (Anrufer Folge 47, möglicherweise auch 23, 29, 36) – Ist auch Fan von Olli, redet mit beiden über Markus Lanz Petition
+- Halbironisches Gespräch über Sarah Wagenknecht
+- Jan spielt Flugsimulator auf iPad
+- Marek ist zum Ende nochmal da und wird von Olli zum Sidekick ernannt

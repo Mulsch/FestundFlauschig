@@ -1,0 +1,10 @@
+- Dauer: 1:12:18
+- Olli ist direkt gestresst und hat seine Mittagspause in die Sendung gelegt, Tour ist vorbei
+- Gespräch über Frisuren und Haartransplantation
+- Jan erzählt von seinem Besuch Frankfurts und dem Treffen mit Bernd Eilers
+- Streitgespräch mit Peter Fox wird wieder kurz aufgegriffen (s. Folge 99)
+- Olli: „Was ist ne Gummipuppe mit weißen Augen? – Voll.“
+- Olli fragt Jan nicht diversen Show- und Interviewteilnahmen 
+- Jan liest einen ZEIT-Artikel über Lena Meyer-Landrut vor
+- Olli und Jan lästern über Tokio Hotel (Olli: „Das sind Opfer.“)
+- Jans Fantasie-Name: James Ironbones

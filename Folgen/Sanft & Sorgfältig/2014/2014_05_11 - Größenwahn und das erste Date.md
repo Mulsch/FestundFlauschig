@@ -1,0 +1,11 @@
+- Dauer: 1:18:49
+- Jan ist mit Delay in New York und hat Gwyneth Paltrow getroffen (😉)
+- Viele ausgedachte Geschichten über Jans Urlaub in New York
+- Jan beatboxt und Olli freestyled
+- Unterhaltung über diverse Rapper und die deutsche Hip-Hop Szene
+- Diskussion über Putins Weltherrschaftspläne
+- Olli erzählt von Urlaub mit Kumpel namens Torsten auf Gran Canaria
+- Olli und Jan streiten sich
+- Fidi und Bumsi müssen einschreiten
+- Gespräche über erste Kinofilme, Adam Driver als neuen Star Wars Bösewicht, JJ Abrams und Steven Spielberg
+- Abschlusslied von Frank Sinatra

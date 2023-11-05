@@ -1,0 +1,19 @@
+- Dauer: 1:33:52
+- Folge beginnt mit Basler-Einspieler
+- Olli wollte Wellness-Wochenende machen, ist nach 3 Tagen aus Genervtheit abgereist (war in Warnemünde)
+- Jan nimmt gerade die Kölner Karnevalszeit mit
+- Jan spricht über Massage-Erfahrungen (Ölmassage, Sauna)
+- Gespräch über Echo-Verleihung (Absage Kraftklub / Nominierung Frei.Wild)
+- Olli: “Ich habe ganz reine Haut und Körperbehaarung wie ein 13jähriger” - wollte ins Fitnessstudio gehen, aber hatte Angst, erniedrigt zu werden
+- Jan: Gym-Gebühr = “Vollidiotensteuer”
+- Olli macht sich lustig, dass Jan die Sendung so oft von zu Hause aufzeichnet
+- Erster Anrufer: Marc – Redet über Saunen und Wellness
+- Gespräch über Jans Liebe für Massagen
+- Zweite Anruferin: Nina – Geht auch in die Sauna und redet über Ledermöbel
+- Jan gibt Haushaltstipps
+- Dritter Anrufer: André – Erzählt, dass er bei Thomas Anders ein Wellnessbad gebaut hat und erzählt eine witzige Bong-Geschichte
+- Vierte Anruferin: Pia – Hat eine schlechte Leitung, ruft nochmal mit Handy der Mutter an 
+- Erste Gespräch über Russland-Offensive
+- Diskussion über Beef zwischen Kerner und einem Besucher des Opernballs, Jan nennt ihn „Kernie Wes“"
+- Fünfter Anrufer: Julian – Erzählt vom Kölner Karneval, war im Club wo Kay One Hausverbot hat (Diamonds)
+- Sechste Anruferin: Gary – Ist aus London und hat einen starken englischen Akzent, Jan macht ihn nach (in der Retroperspektive ziemlich unangenehm)
