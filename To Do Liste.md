@@ -37,4 +37,3 @@
 - Zusätzliche Übersichten zu den Podcasts "Olli Schulz on Tour" und "16 & Zwei" sind geplant, die vollständige Abarbeitung aller Fest & Flauschig Folgen hat jedoch zunächst Priorität.
 - Es fehlen noch Übersichten zu den Podcast-Rubriken (Die Großen Fünf und Entweder/Oder), diese werden zeitnah eingefügt und fortlaufend aktualisiert.
 - Eine spezielle Übersicht zu Empfehlungen der Moderatoren ist für den Podcast "Fest und Flauschig" geplant. Eine solche Übersicht für ZaH und S&S würde ein erneutes Hören der Folgen erfordern und steht dementsprechend hinten an.
-- Folgenverweise müssen mit Datum versehen werden, da die Folgen derzeit nicht numieriert sind. (siehe insb. "Rubriken" und "Weiteres")
