@@ -7,3 +7,4 @@
 - 15.05.2016: Trio - Los Paul
 - 15.05.2016: Scott Walker - Jackie
 - 22.05.2016: Justin Currie - The Fight to be Human (*einer von Ollis Lieblingssongs*)
+- 22.05.2016: Walker Brothers - Make it easy on youself 
