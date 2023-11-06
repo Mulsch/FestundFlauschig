@@ -1,12 +1,12 @@
 - Dauer: 1:06:31
 - Folge beginnt mit einem Intro von Olli (Jürgen Matthies, der Drogen- und Pornosüchtige)
 - Olli will während der Sendung saufen, ist bereits mit Whiskey-Cola zur Aufzeichnung erschienen
-- Jan wertet kurz seine Zimmer frei! Folge aus
+- Jan wertet kurz seine *Zimmer frei!* Folge aus
 - Olli regt sich über Feedback zur ersten Sendung auf und will die Sendung belangloser gestalten
 - Gespräch über Thilo Jung und den Pressesprecher eines Bundesministeriums, der den Podcast hört
-- Jan hat wieder damit angefangen, Cola zu trinken und Olli erzählt Suffgeschichten mit Bezug zu Whiskey-Cola
+- Jan hat wieder damit angefangen, Cola zu trinken und Olli erzählt Suffgeschichten mit Whiskey-Cola
 - Jan spricht über Sigmar Gabriels Gürtelrose und verkannte Genies
-- Olli erzählt, wie er für eine neue Clubidee begeistert werden sollte, die ganze Idee aber komplett dumm fand und Jan sollte "Zugpferd" einer Partyreihe von radio eins werden
+- Olli erzählt, wie er für eine neue Clubidee begeistert werden sollte, die ganze Idee aber komplett dumm fand und Jan, wie er "Zugpferd" einer Partyreihe von radio eins werden sollte
 - *Andi Brehme Einspieler*
 - Olli hat bei VOX "Goodbye Deutschland" geguckt mit Angelo Kelly, den er früher nicht leiden konnte, inzwischen aber sehr mag
 - Jan wertet Christian Kahrmanns Autounfall aus [^1]
@@ -16,7 +16,27 @@
 - Gespräche über Wohnungsfliesen und Teppich vor der Toilette
 - Olli singt "Manchmal denk ich, ich wäre traurig, doch dann hör ich Fest & Flauschig"
 - Jan erzählt von seinen Kopfhörern, Olli hat traurigen Film von Louis C.K. geschaut
-- Weiter: 27:57
+- Jan hat Tickets für Louis C.K. gekauft, Olli für's DFB-Pokalfinale (2015, wurde abgezockt)
+- Jan wertet Jogi Löws EM-Kader aus und redet ausführlich über Lukas Podolski
+- Anschlussgespräche über Tim Wiese und Lena Meyer-Landrut
+- Jan hat korrekt vorhergesagt, dass Deutschland im ESC Letzter werden wird (s. Folge vom 15.05.2016)
+- Jan und Olli machen für verschiedene Dinge Werbung, unter anderem für Sennheiser Kopfhörer und das Kebapland (s. Folge vom 13.12.2015)
+- Gespräch über Tod von Erika Berger
+- Jan artikuliert sein Verständnis eines komischen Künstlers: *"Im aller besten Fall ein Schauspieler mit einer roten Nase auf - man geht amüsiert abends nachhause und alle schunkeln mit" ist laut Jan das typisch deutsche Verständnis, Jan ist komplett anderer Meinung: "Man muss emotional mitgenommen werden und viel drüber nachdenken. Der Witz muss im Moment funktionieren."
+- Olli erzählt einen Arzt-/Clownwitz (42:10) und spricht über "Der Clown" von Heinz Rührmann (*Olli hasst Clowns, 04.05.2014*)
+- Jan redet über das Titanic-Magazin und Karneval
+- Einspielerdebüt: "Böhmchen und Lollo"
+- Olli erzählt über seinen rausgeschnittenen Teil bei Markus Lanz, wo er einem Sexualforscher gesagt hat, er sähe aus wie Roland Schill
+- Jan spricht seine Vera Int-Veen Aktion an[^3]
+- Olli redet lobend über Su Holder
+- Jan und Olli erfindenen Erwachsenenbücher für Bibi Blocksberg (Bibi braucht Koks)
+- Jan ärgert sich mal wieder über *Ihre Meinung"*
+- Olli erzählt einen Pferdewitz (54:55)
+- *Vicky jetzt reicht's Einspieler*
+- Jan überlegt sich, ein Wohnmobil zu kaufen, er will mal raus wie Thomas D und damit nach Frankreich und Schweden fahren. Olli empfiehlt stattdessen ein schamanisches Ritual mit einem Krafttier.
+- Jan fragt Olli, was er machen würde, wenn er Gott wäre. Olli antwortet: Klimaschutz.
+- Jan erzählt zum Abschluss, dass er sich eine Fritteuse gekauft hat und erklärt sich bereit, im Podcast Werbung zu machen. Olli will stattdessen für "kleine geile Läden" Werbung machen
 
 [^1]: https://www.abendzeitung-muenchen.de/promis/nach-alkohol-unfall-christian-kahrmann-war-auf-entzug-art-346956
 [^2]: https://www.youtube.com/watch?v=DOH3eWW_EsY
+[^3]: https://www.youtube.com/watch?v=mG_Fyc-nyOs
