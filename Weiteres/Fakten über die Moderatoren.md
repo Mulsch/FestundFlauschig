@@ -25,3 +25,4 @@
 - Geburtstag der Mutter: 12.10.1954 (S&S, 12.10.2014, 1:00), hat keine Geschwister (S&S, 21.12.2014, 7:30)
 - Kommt aus Hamburg Stellingen (S&S, 29.11.2015, 27:00)
 - Hat noch Freunde, die nicht wissen, dass er Musiker ist (S&S, 28.02.2016, 25:50)
+- Mag kein Bier (F&F, 22.05.2016, 5:00)
