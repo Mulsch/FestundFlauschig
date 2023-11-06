@@ -1,13 +1,13 @@
-- Joko Winterscheidt (am Telefon) - Folge 4
-- Ulla Meinecke (am Telefon) - Folge 24
-- Thees Uhlmann – Folge 30
-- Serdar Somuncu (am Telefon) - Folge 33
-- Sibylle Berg (am Telefon) - Folge 34
-- Bjarne Mädel (am Telefon) – Folge 64
-- Serdar Somuncu (am Telefon) - Folge 79
-- Bjarne Mädel – Folge 96
-- Peter Fox – Folge 99
-- Matthias Brandt – Folge 106
-- Tom Schilling – Folge 110
-- Dr. Peter Vajkoczy – Folge 126
-- Nora Tschirner – Folge 138
+- Joko Winterscheidt (am Telefon) - Folge 4 (04.11.2012)
+- Ulla Meinecke (am Telefon) - Folge 24 (09.06.2013)
+- Thees Uhlmann – Folge 30 (01.09.2013)
+- Serdar Somuncu (am Telefon) - Folge 33 (22.09.2013)
+- Sibylle Berg (am Telefon) - Folge 34 (29.09.2013)
+- Bjarne Mädel (am Telefon) – Folge 64 (18.05.2014)
+- Serdar Somuncu (am Telefon) - Folge 79 (19.10.2014)
+- Bjarne Mädel – Folge 96 (15.02.2015)
+- Peter Fox – Folge 99 (08.03.2015)
+- Matthias Brandt – Folge 106 (26.04.2015)
+- Tom Schilling – Folge 110 (24.05.2015)
+- Dr. Peter Vajkoczy – Folge 126 (25.10.2015)
+- Nora Tschirner – Folge 138 (24.01.2016)
