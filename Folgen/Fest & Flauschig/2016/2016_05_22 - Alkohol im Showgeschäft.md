@@ -1,0 +1,7 @@
+- Dauer: 1:06:31
+- Folge beginnt mit einem Intro von Olli (Jürgen Matthies, der Drogen- und Pornosüchtige)
+- Olli will während der Sendung saufen, ist bereits mit Whiskey-Cola zur Aufzeichnung erschienen
+- Jan wertet kurz seine Zimmer frei! Folge aus
+- Olli regt sich über Feedback zur ersten Sendung auf und will die Sendung belangloser gestalten
+- Gespräch über Thilo Jung und den Pressesprecher eines Bundesministeriums, der den Podcast hört
+- 
