@@ -9,4 +9,5 @@
 - 22.05.2016: Justin Currie - The Fight to be Human (*einer von Ollis Lieblingssongs*)
 - 22.05.2016: Walker Brothers - Make it easy on youself 
 - 22.05.2016: Klaus Hoffmann - Das alte Lied
+- 29.05.2016: Whipping Boy - We don't need nobody else
   
