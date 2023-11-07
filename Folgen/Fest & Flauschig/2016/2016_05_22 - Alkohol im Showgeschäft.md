@@ -37,6 +37,6 @@
 - Jan fragt Olli, was er machen würde, wenn er Gott wäre. Olli antwortet: Klimaschutz.
 - Jan erzählt zum Abschluss, dass er sich eine Fritteuse gekauft hat und erklärt sich bereit, im Podcast Werbung zu machen. Olli will stattdessen für "kleine geile Läden" Werbung machen
 
-[^1]: https://www.abendzeitung-muenchen.de/promis/nach-alkohol-unfall-christian-kahrmann-war-auf-entzug-art-346956
-[^2]: https://www.youtube.com/watch?v=DOH3eWW_EsY
-[^3]: https://www.youtube.com/watch?v=mG_Fyc-nyOs
+[^1]: https://www.abendzeitung-muenchen.de/promis/nach-alkohol-unfall-christian-kahrmann-war-auf-entzug-art-346956  
+[^2]: https://www.youtube.com/watch?v=DOH3eWW_EsY  
+[^3]: https://www.youtube.com/watch?v=mG_Fyc-nyOs  
