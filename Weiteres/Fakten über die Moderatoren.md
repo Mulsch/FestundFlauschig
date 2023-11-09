@@ -25,3 +25,4 @@
 - Kommt aus Hamburg Stellingen (S&S, 29.11.2015, 27:00)
 - Hat noch Freunde, die nicht wissen, dass er Musiker ist (S&S, 28.02.2016, 25:50)
 - Mag kein Bier (F&F, 22.05.2016, 5:00)
+- Hat schonmal Nacktbilder verschickt (F&F, 05.06.2015, 1:00:00)
