@@ -5,6 +5,7 @@
 - 22.05.2016(?): Superpunk - Rette dich vor den einfachen Leuten
 - 29.05.2016: Bots - Sieben Tage lang
 - 05.06.2016: Beginner, Gzuz, Gentleman - Ahnma
+- 05.06.2016: Eric Guhuns, Patrick Brady - Springtime for Hitler / Heil Myself
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
