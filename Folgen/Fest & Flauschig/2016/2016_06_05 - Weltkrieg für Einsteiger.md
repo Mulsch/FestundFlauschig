@@ -11,7 +11,27 @@
 - Jan liest den Wikipedia Artikel der Autorin von Bibi Blocksberg vor (war mit Peter Lustig verheiratet)
 - Erste Erwähnung von Gzuz ("Der neue große heiße Scheiß aus Hamburg" - Olli)
 - Jan spricht über seine Unterstützung für Äthiopien und überlegt, Schauspieler zu werden
-- Weiter: 26:50
+- Olli will in der BILD die Serie "Versexter Weltkrieg" sehen, Jan recherchiert bei WELT und findet tatsächlich Artikel (allerdings nichts witziges)
+- Olli erzählt einen Opa-Witz über Amsterdam (29:00)
+- Jan spinnt herum und sagt, dass die Nazis die weiße Schokolade erfunden hätten und Olli gibt einen Buchtipp
+- Olli möchte gerne die großen fünf Horrorfilme machen, aber Jan kennt keine Horrorfilme
+- Jan erzählt von seiner Tour durch die Schlachtfelder des ersten Weltkriegs und 
+- Jan sieht Gefahr durch die Skandinavier, besonders die Dänen (erklären uns bald Krieg)
+- Olli liest einen Hörerbrief vor von jemandem, der durch Spanien gewandert ist
+- Olli wundert sich über die vielen negativen Kommentare über Spotify und ordnet anschließend Musicals den Schwulen zu ("Jans schwule Ader")
+- Anschlussgespräch über verschiedene Musicals und das Benutzen des Wortes "schwul" als Beleidigung
+- Jan holt die Bürgerwehrgeschichte noch einmal hoch und wertet sie aus
+- Gespräch über Traumatisierung im Internet (LiveLeak) und Kriegszerstörungen in Deutschland
+- Großer Köln vs Berlin Vergleich
+- Olli hat eine Pizza bestellt und isst diese live in der Sendung
+- Jan erzählt von der Doku "Hot Girls Wanted" (Jan bringt Schöffen-Geschichten ein)
+- Gespräch über Thomas Gottschalk (Jan würde ihn gerne mal treffen) und dessen Biografie, die beide gelesen/gehört haben
+- Weitere Gespräche über Biografien von Günter Gabriel und Mike Krüger
+- Begriff des "Sexistischen Waffen-SS"-Olli entsteht
+- Jan erzählt Stories von seinem privaten Disneyland-Trip
+- Olli erzählt einen Arzt-Witz (1:12:00) und einen Fremdgeh-Witz (1:12:30)
+- Olli bedankt sich bei den Zuhörern für ihre Geduld und Mithilfe bei vielen Themen (Jan hat Tipps für sein Wohnmobil und sein Taubenproblem (s. Folge vom 29.05.2016) bekommen)
+- Olli würden mit Jan gerne ins Otter Zentrum fahren und Jan möchte mit Olli ins vom "Panzer Museum Munster"
 
 [^1]: https://www.spiegel.de/politik/deutschland/tuerkei-botschafter-aus-berlin-zurueckgezogen-a-1095494.html
 [^2]: https://www.spiegel.de/panorama/justiz/arnsdorf-in-sachsen-buergerwehr-geht-auf-kranken-fluechtling-los-a-1095388.html
