@@ -1,0 +1,30 @@
+- Folge 151 / 1: Aufbau West - 15.05.2016
+- Folge 152 / 2: Alkohol im Showgeschäft - 22.05.2016
+- Folge 153 / 3: The Big Empty - 29.05.2016
+- Folge 154 / 4: Weltkrieg für Einsteiger - 05.06.2016
+- Folge 155 / 5: Demut und Vergebung - 12.06.2016
+- Folge 156 / 6: Spam - 19.06.2016
+- Folge 157 / 7: Paradiesische Verhältnisse - 26.06.2016
+- Folge 158 / 8: Die Deutsche Sendung - 03.07.2016
+- Folge 159 / 9: Bonusfolge: Böhmerland und Olliversum-die verlorene Sendung - 06.07.2016
+- Folge 160 / 10: Die Geschichte der Menschheit - 10.07.2016
+- Folge 161 / 11: Technischer Fortschritt - 17.07.2016
+- Folge 162 / 12: Datenvolumen des Lebens - 24.07.2016
+- Folge 163 / 13: Das große Sommerfest - 30.07.2016
+- Folge 164 / 14: Künstlerische Depression - 04.09.2016
+- Folge 165 / 15: Autorität - 11.09.2016
+- Folge 166 / 16: Barbarische Wochen - 18.09.2016
+- Folge 167 / 17: Unsere alte Scheißwelt - 25.09.2016
+- Folge 168 / 18: Die blaue Stunde - 02.10.2016
+- Folge 169 / 19: Die große Erleichterung - 09.10.2016
+- Folge 170 / 20: Weltraum & Mee(h)r - 16.10.2016
+- Folge 171 / 21: Global Warning - 23.10.2016
+- Folge 172 / 22: Marzipankartoffeln - 30.10.2016
+- Folge 173 / 23: Das Leben ist ne Ratte - 06.11.2016
+- Folge 174 / 24: The Show must go on - 13.11.2016
+- Folge 175 / 25: Sex and Gags - 20.11.2016
+- Folge 176 / 26: Liebeskummersendung - 27.11.2016
+- Folge 177 / 27: Altern und Würde - 04.12.2016
+- Folge 178 / 28: Runterfahren - 11.12.2016
+- Folge 179 / 29: Die Baustelle des Lebens - 18.12.2016
+- Folge 180 / 30: Die Notsendung - 25.12.2016
