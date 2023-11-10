@@ -8,7 +8,24 @@
 - Jan hat sich eine Kölner Polizeiwache angesehen
 - Gespräch über das Gladbecker Geiseldrama und das berüchtigte David Garrett Interview[^1]
 - Thees erzählt, wie er bei der Obama Rede beim Brandenburger Tor anwesend war und David Garrett "Born in America" ankündigte
-- Olli war beim Iron Maiden Konzert und ist nach 30min gegangen
-- Weiter: 21:55 
+- Olli war beim Iron Maiden Konzert und ist nach 30min gegangen und redet schlecht über den Sänger der Red Hot Chili Peppers (Hat sich alte Konzerte angesehen)
+- Olli regt sich über Handys bei Konzerten auf
+- *Westernhagen Einspieler*
+- Jan schlägt Olli vor, Bundespräsident zu werden (Olli lehnt wegen Vorstrafen dankend ab)
+- Olli erzählt, dass er sich auf einem Udo Lindenberg Konzert vor 20 Jahren in der "Sporthalle" geprügelt hat und einem Gast frontal ins Gesicht geschlagen hat (wurde von zivilem Kripobeamten angezeigt)
+- Olli erzählt, wie ihm mit 23 zwei Zähne ausgeschlagen wurden (s. Folge vom 03.11.2013)
+- Thees Uhlmann erzählt Geschichte von seinem eingefrorenen toten Hund, der in der Asservatenkammer der Polizei lag
+- Olli hat sich den Film "Cocktail" angeschaut und da einen Handjob bekommen
+- Olli erzählt einen Ehe-Witz (38:00)
+- Einspielerdebüt(?): "Wie kann man so dumm sein?" von Richard Antoine
+- Olli erzählt, wie er in Österreich bei einem Veranstalter von einem Konzert schlafen musste (Ganz viele Böhse Onkelz Poster, "Heroin ist Soulfood") und vermisst Momente zum Erinnern im modernen TV
+- Jan redet über *Lenßen live* und *Ihre Meinung!*
+- Olli hat einen Fan, der sich Ollis Gesicht auf den Unterarm tätowieren lassen hat - Anschlussgespräch über Tattoos und "Spargelsandalen"[^2]
+- *Andreas Brehme Einspieler*
+- Gespräch über den Beginn der Europameisterschaft 2016
+- Thees Uhlmann hat in England 5000 Pfund darauf verwettet, dass Heiko Maas Bundeskanzler wird
+- Olli erzählt von seinem ersten Konzert (Run DMC)
+- Abschlussgespräch über Serien (Game of Thrones, Vinyl)
 
 [^1]: https://www.welt.de/vermischtes/article156003385/Star-Geiger-sieht-sich-von-Pornostar-erpresst.html
+[^2]: http://www.dravenstales.ch/heute-gibt-es-spargel-sandalen/
