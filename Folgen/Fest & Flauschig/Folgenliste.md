@@ -28,3 +28,13 @@
 - Folge 178 / 28: Runterfahren - 11.12.2016
 - Folge 179 / 29: Die Baustelle des Lebens - 18.12.2016
 - Folge 180 / 30: Die Notsendung - 25.12.2016
+- Folge 181 / 31: 1000 ganz legale Steuertricks (Gib dem Hass eine Chance) - 29.01.2017
+- Folge 182 / 32: Der große Sontagsspaziergang - 05.02.2017
+- Folge 183 / 33: Bundesversammlung - 12.02.2017
+- Folge 184 / 34: Konsequenzen - 19.02.2017
+- Folge 185 / 35: Der Preis des Lebens - 26.02.2017
+- Folge 186 / 36: Das Leben ist ein Comic - 05.03.2017
+- Folge 187 / 37: Dicker Wurm am Haken - 12.03.2017
+- Folge 188 / 38: Ordnung ist das halbe Leben - 19.03.2017
+- Folge 189 / 39: Honig im Tee - 26.03.2017
+- Folge 190 / 40: Karriereknick - 02.04.2017
