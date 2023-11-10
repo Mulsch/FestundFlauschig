@@ -6,6 +6,7 @@
 - 29.05.2016: Bots - Sieben Tage lang
 - 05.06.2016: Beginner, Gzuz, Gentleman - Ahnma
 - 05.06.2016: Eric Guhuns, Patrick Brady - Springtime for Hitler / Heil Myself
+- 12.06.2016: De Fottig Penns - Löppt
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
