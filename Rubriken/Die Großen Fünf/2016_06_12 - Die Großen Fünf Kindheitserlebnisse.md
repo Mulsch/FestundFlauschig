@@ -1,0 +1,7 @@
+Platz | Jan | Olli | Thees Uhlmann
+------ | ------|----------|------
+5      |Fahrt über die Grenze beim Mauerfall mit seinem Vater und wie sie nichts zu essen gefunden haben|Sommer 1985, Olli hat sich die Live-Aid Veranstaltung im Fernsehen angeschaut|Hamburg, Thees wurde darüber aufgeklärt, was Punks sind
+4      |Besuch des Magic Park Verden, hat ein Karussell ganz schnell gedreht und wurde 10 Meter geschleudert (Arm gebrochen)|Olli war mit dem Fußballverein im Babyzoo und hat eine Scheibe kaputtgetreten (Hat das Babykrokodil befreit)|Thees wurde von einer Wespe gestochen und seine Oma kam strumpfhosenhochziehend von der Toilette gerannt
+3      |Hatte die CD "Nach mir die Sintflut" von den Ärzten von seinem Onkel gebrannt bekommen|1990, Deutschland wird Fußball Weltmeister und Olli fuhr zur Reeperbahn in den Elbschlosskeller. Als er aufwachte, waren seine Schuhe weg (Barfrau wollte klauen), Heinz Strunk hat die Geschichte in "Der goldene Handschuh" verwendet|Thees holt sich eine Narbe von heißem Wasser auf der Brust
+2      |Dreitägige Autofahrt an die Algarve mit seinen Eltern|Olli war in Palamos während der WM in Spanien, Deutschland spielte gegen Frankreich und über ihm wohnten Franzosen.|Rückfahrt aus dem Südtirol-Ausstellung, Vater von Thees meinte in einer Kunstaustellung bei jedem Bild "Na das kann doch jeder."
+1      |Jan war am FKK Strand und hat einen Japaner mit einer riesigen Latte gesehen.|Ollis "Cocktail"-Affäre|Besuch der Oma in Blankenese, hat Räuber Hotzenplotz im Theater geguckt und Angst vor den Requisiten-Pistolen gehabt
