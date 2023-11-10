@@ -19,3 +19,6 @@
 - 05.06.2016: Foutains of Wayne - Hackensack
 - 05.06.2016: Ben Watt - Forget
 - 12.06.2016: Bruce Springsteen - Thunder Road (Piano Version)
+
+**Hinzugefügt von Gästen:**
+- 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
