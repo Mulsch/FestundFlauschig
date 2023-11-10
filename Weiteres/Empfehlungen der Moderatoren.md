@@ -7,3 +7,5 @@ _**Bücher:**_
 _**Dokumentationen:**_  
 - Hot Girls Wanted (Jan, F&F, 05.06.2016, 54:30)
 
+_**Serien:**_
+- Vinyl (Olli, F&F, 12.06.2016, 1:27:00)
