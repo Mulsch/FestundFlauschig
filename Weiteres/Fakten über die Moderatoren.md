@@ -27,3 +27,4 @@
 - Mag kein Bier (F&F, 22.05.2016, 5:00)
 - Hat schonmal Nacktbilder verschickt (F&F, 05.06.2015, 1:00:00)
 - Ihm wurde bereits zweimal das Konto gepfändet (F&F, 12.06.2015, 7:30)
+- Erstes Konzert: Run DMC (F&F, 12.06.2016, 1:20:00)
