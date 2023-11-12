@@ -14,7 +14,6 @@
 	- Folge vom 15.09.2013
 	- Folge vom 10.11.2013
 	- Folge vom 01.12.2013
-	- Folge vom 07.09.2014 (unvollständig)
 	- Folge vom 15.02.2015
 	- Folge vom 25.10.2015
 	- Folge vom 01.11.2015
