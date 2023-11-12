@@ -5,4 +5,8 @@
 - Olli erzählt wieder von seiner Angst, dass irgendwann die „Assis“ die Macht übernehmen
 - Olli redet über das Dilemma mit neuer Musik
 - Olli und Jan hören in die aktuellen Charts rein und finden alles Mist
-- Weiter: 58:28
+- Olli spricht über seine neue Platte
+- Jans Laptop ist abgestürzt und er muss seine Festplatte neu formatieren
+- Gespräch über das Versenden von Nacktbildern und Nacktbildern von Prominenten
+- Olli erzählt von seinem Wunsch, eine Rolex zu kaufen
+- Jan erzählt zum Abschluss vom Debüt der Apple Watch und Olli hat Schimanski Folgen gebrannt bekommen
