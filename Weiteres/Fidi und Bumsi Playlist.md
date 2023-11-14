@@ -7,6 +7,7 @@
 - 05.06.2016: Beginner, Gzuz, Gentleman - Ahnma
 - 05.06.2016: Eric Guhuns, Patrick Brady - Springtime for Hitler / Heil Myself
 - 12.06.2016: De Fottig Penns - Löppt
+- 19.06.2016: Rufus Wainwright - Out Of The Game
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
