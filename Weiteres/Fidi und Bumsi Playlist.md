@@ -20,6 +20,7 @@
 - 05.06.2016: Ben Watt - Forget
 - 12.06.2016: Bruce Springsteen - Thunder Road (Piano Version)
 - 12.06.2016: Electric Light Orchester - The Sun will shine on You
+- 19.06.2016: Tim McGraw - Shotgun Rider
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
