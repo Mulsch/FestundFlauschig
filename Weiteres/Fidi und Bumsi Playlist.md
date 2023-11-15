@@ -22,6 +22,7 @@
 - 12.06.2016: Bruce Springsteen - Thunder Road (Piano Version)
 - 12.06.2016: Electric Light Orchester - The Sun will shine on You
 - 19.06.2016: Tim McGraw - Shotgun Rider
+- 26.06.2016: Sido - Hamdullah
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
