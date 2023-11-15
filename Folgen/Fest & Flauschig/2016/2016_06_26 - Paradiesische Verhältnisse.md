@@ -1,0 +1,19 @@
+- Dauer: 1:25:33
+- Titelerklärung: direkt zu Beginn
+- Olli und Jan sind tiefenentspannt, Jan ist auf Mallorca, Olli war "im Süden des Landes"
+- Anfangsgespräch über den Brexit und die Europameisterschaft (Jan hat kein EM-Fieber)
+- Olli denkt, er hat letzte Sendung schlechte Laune verbreitet und will nun gute Laune ausstrahlen
+- Olli redet über Sanifair-Toiletten und die dazugehörigen Bons (Jan denkt an "Bongs")
+- Gespräch über Mark Forster (findet Olli inzwischen doof) und Sidos Musik und Zielgruppe ("Akademisierung des Hip Hop")
+- Olli hat viel Fanpost zu seiner Kiffer-Geschichte aus der letzten Sendung erhalten - beide erhalten außerdem sehr viel Facebook Nachrichten
+- Jan hat Fanpost zu seiner Theorie erhalten, dass das beste Obst und Gemüse nicht nach Deutschland kommt (Theorie wird bestätigt)
+- *Jenny Elvers Einspieler*
+- Jan macht auf Mallorca eine Radtour alleine mit dem Bierbike, Olli erzählt, dass er in Peter Maffays Heimatstadt war
+- Jan und Olli gründen scherzhaft die "Trüffel-SS", Olli hätte zudem gerne ein EM-Spiel kommentiert
+- Jan liest Fanpost vor, in der es um seinen "Schmusi"-Ausdruck geht und eine weitere, in der sich über das "Spulgeräusch" in der Sendung aufgeregt wird
+- Jans größte Angst: Eine Hotelkraft benutzt seine Zahnbürste
+- Gespräch über Game of Thrones und Vinyl (Serie)
+- Jan hat sich eine Handyhülle mit externem Akku gekauft und regt sich über den teuren Preis von elektrischen Zahnbürsten auf (Olli hat eine Designerbürste)
+- Olli liest Fanpost von einer Prostituierten vor (soll eventuell eingeladen werden in die Sendung)
+- Jan spricht über die SPIEGEL Online Eilmeldungen (Qualität sei gesunken) - Olli vermutet Konkurrenzkampf
+- Weiter: 35:35
