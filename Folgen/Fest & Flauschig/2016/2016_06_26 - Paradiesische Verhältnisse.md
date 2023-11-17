@@ -16,4 +16,18 @@
 - Jan hat sich eine Handyhülle mit externem Akku gekauft und regt sich über den teuren Preis von elektrischen Zahnbürsten auf (Olli hat eine Designerbürste)
 - Olli liest Fanpost von einer Prostituierten vor (soll eventuell eingeladen werden in die Sendung)
 - Jan spricht über die SPIEGEL Online Eilmeldungen (Qualität sei gesunken) - Olli vermutet Konkurrenzkampf
-- Weiter: 35:35
+- Olli und Jan "knutschen" am Mikro rum
+- Jan liest Fanpost von einem Tapetenhersteller vor (Hatte Kunden, der seine Rosette als Bild tapezieren wollen) und von einem Erzieher aus Lüdenscheidt (Olli hätte gerne in jedem Bundesland ein Kind)
+- Olli erzählt von seiner Idee, ein Panini Heft mit Panini Bildern herauszubringen (Tomate, Schinken, Käse)
+- Olli erzählt, wie er im MediaMarkt immer um die Mitarbeiter kämpfen muss
+- Olli erzählt Urlaubsgeschichten aus seiner Jugend und hat sich mit Äthiopien beschäftigt ("Die hatten selber Sklaven")
+- Olli hat jetzt ein Fender-Endorsement und redet von seiner neuen Rolle als "Fashion Boss"
+- Gespräch über "High Maintenance"-Frauen
+- Jan hat im Juni noch Winterreifen drauf und einen kleinen Unfall gehabt
+- Olli erzählt, wie er einem Foodstore in Berlin eine Tüte voll Kacke in die Fritteuse hauen wollte (s. Folge vom 31.08.2014)
+- Olli regt sich über Bürgerläden auf und Jan spricht über "Lisa von Foodora"
+- Jan hat sich in Spanien eine Fanta Lemon Dose gekauft und merkt an, dass es in Spanien kein Dosenpfand und keine Mülltrennung gibt
+- *Habt ihr Bock auf Feiern Einspieler*
+- Olli erzählt erneut von seiner Kochbuch Idee (Löffel und Leine)
+- Olli und Jan erzählen, dass sie beide handwerklich sehr begabt sind
+- Abschlussgespräch über Kindererziehung und Jans Urlaubspläne
