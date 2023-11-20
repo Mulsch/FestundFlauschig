@@ -78,12 +78,12 @@
 - Träume, die sich beide noch erfüllen wollen (27.09.2015)
 - Kindheitserlebnisse (12.06.2016)
 
-***Printmedien:***
+***Printmedien***
 - Frauenzeitschriften (25.08.2013)
 - Comics der 80er (06.10.2013)
 - Asterix Hefte (06.10.2013)
   
-***Prominente:***  
+***Prominente***  
 
 *Fernsehen*  
 - Deutsche Showmaaster (24.03.2013)
