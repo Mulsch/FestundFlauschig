@@ -8,6 +8,7 @@ _**Dokumentationen:**_
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
 - "Ich bin die Gnade Gottes" (Olli, F&F, 19.06.2016, 18:30)
 - "Ego" mit Horst Janssen (Olli, F&F, 19.06.2016, 19:30)
+- "Talking Funny" (Olli, F&F, 04.07.2016, 1:10:30) 
 
 _**Serien:**_
 - "Vinyl" (Olli, F&F, 12.06.2016, 1:27:00)
