@@ -1,4 +1,4 @@
-***Essen und Trinken:***
+***Essen und Trinken***
 - Brotbeläge (17.03.2013)
 - Raststättensnacks (17.03.2013)
 - Schokoriegel (17.03.2013)
@@ -27,9 +27,9 @@
 - Kuchensorten (29.05.2016)
 - Tiefkühlprodukte (04.07.2016)
 
-***Film und Fernsehen:***
+***Film und Fernsehen***
 
-*Serien:*
+*Serien*
 - "Hallo Spencer" Charaktere (24.03.2013)
 - Serien der eigenen Jugend (24.03.2013)
 - Serien der 80er Jahre (31.03.2013)
@@ -39,14 +39,14 @@
 - Entenhausen-Charaktere (04.10.2015)
 - Kinderserien (19.06.2016)
 
-*Filme:*
+*Filme*
 - Deutsche Überbewerte Filme (28.04.2013)
 - Comedy-Filme (21.02.2016)
 
-*Sonstiges:*
+*Sonstiges*
 - TV-Kommissare (10.11.2013)
 
-***Geografie:***
+***Geografie***
 - Mittelstädte in Deutschland (20.10.2013)
 - Bundesländer (15.06.2014)
 - Flüchtlingsziele für Deutsche (07.09.2014)
@@ -57,7 +57,8 @@
 - Dinge, die ins Portemonnaie gehören (30.11.2014)
 - Gesellschaftsspiele (22.03.2015)
 
-***Lifestyle:***
+***Lifestyle***
+- Trennungsgründe (14.04.2013)
 - Modeaccessoires (03.11.2013)
 - Kaufhausketten und Kaufhäuser (02.02.2014)
 - Männerhobbies (11.01.2015)
@@ -65,7 +66,7 @@
 - Elternarten (31.05.2015)
 - Demütigungsbranchen (26.06.2016)
 
-***Persönliches:***
+***Persönliches***
 - Vorbilder (17.02.2013)
 - Privatpersonen (10.11.2013)
 - Autos, die sie besessen haben (26.01.2014)
@@ -83,7 +84,7 @@
   
 ***Prominente:***  
 
-*Fernsehen:*  
+*Fernsehen*  
 - Deutsche Showmaaster (24.03.2013)
 - Deutsche Komiker (31.03.2013)
 - Deutsche Komiker (Fidi Edition) (16.06.2013)
@@ -96,16 +97,16 @@
 - Alphatiere (01.03.2015)
 - Fernsehpersönlichkeiten, die sie nicht vermissen (06.09.2015)
 
-*Musiker:*
+*Musiker*
 - Schlagerstars (24.11.2013)
 - Rockbands (29.06.2014)
 - Musiker, die es ernst meinen (15.03.2015)
 
-*Sportler:*  
+*Sportler*  
 - Nationaltorhüter (17.02.2013)
 - Tennisspieler (01.09.2013)
 
-*Politiker:*  
+*Politiker*  
 - Deutsche Politiker (05.05.2013)
 - Bundeskanzler (15.09.2013)
 - Attraktive deutsche Politikerinnen (22.09.2013)
@@ -117,7 +118,7 @@
 - Freundschaften (01.06.2014)
 - Feindschaften (22.06.2014)
 
-***Radio und Musik:***
+***Radio und Musik***
 - Radio Ideen von Udo Kier (17.02.2013)
 - Radio Eins Moderatoren (17.02.2013)
 - Hörspiel-Serien (25.08.2013)
@@ -125,20 +126,18 @@
 - Ärzte-Lieder (12.04.2015)
 - Konzertvenues (06.12.2015)
   
-***Sport:***
+***Sport***
 - Dumme Sportarten (09.06.2013)
   
-***Tiere:***
+***Tiere***
 - Meeressäuger (17.02.2013)
 - Raubkatzen (17.02.2013)
 - Raubtiere (03.03.2013)
 
-***Verschiedenes:***
+***Verschiedenes***
 - Dinge, die man nur im Auto macht (24.03.2013)
-- Trennungsgründe (14.04.2013)
 - Schmerzen (02.06.2013)
 - RAF Terroristen (08.09.2013)
 - Beleidigungen (08.09.2013)
 - Gründe für den Weltuntergang (26.04.2015)
 - Sätze von Männern beim Sex (14.06.2015)
-
