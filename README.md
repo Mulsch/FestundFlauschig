@@ -12,4 +12,4 @@ Außerdem sind fast alle Folgen auch hier verfügbar, wenn ihr sie mit dem Handy
 https://recastthis.com/source/60/  
 https://susallefolgen.netlify.app/
 
-Den aktuellen Reddit Post zum Repository findet ihr [hier](https://www.reddit.com/r/FestundFlauschig/comments/17guam4/projekt_zusammenfassung_aller_folgen_sanft/?utm_source=share&utm_medium=web2x&context=3).
+Den aktuellen Reddit Post zum Repository findet ihr [hier](https://www.reddit.com/r/FestundFlauschig/comments/17zqr9m/update_fest_flauschig_wiki/).
