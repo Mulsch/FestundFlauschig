@@ -2,7 +2,7 @@
 - Titelerklärung: ab 0:30 
 - Folge beginnt mit dem *Schenk ein das Ding*-Einspieler
 - EM wird kurz angesprochen (Deutschland steht im Viertelfinale gegen Italien), Olli hat Portugal vs. Polen geschaut
-- Gespräch über Chris Tall und die Wiesenhof Werbung von Atze Schröder
+- Gespräch über Chris Tall und die Wiesenhof Werbung von Atze Schröder[^6]
 - Teil der Sendung (40min) ist verloren gegangen, weswegen die Sendung neu aufgenommen werden musste (Hatten laut eigener Aussage sehr gute Themen, nenne die Sendung "Die Atlantis Sendung")
 - Jan redet über Gina Lisa Lohfink (Erzählt wieder von der Hotelstory, Gina Lisa wollte einen Jacuzzi haben, s. Folge vom 24.11.2013) und den moralischen Aspekt von Rape Jokes
 - Jan redet sich in Rage über das Thema "Was darf Humor?" und erzählt von Pizzaschmelz aus dem Supermarkt und einem Baumarktbäcker in Köln
@@ -35,3 +35,4 @@
 [^3]: https://regionalheute.de/brutaler-ueberfall-auf-geldtransporter/
 [^4]: https://www.zeit.de/kultur/kunst/2016-06/michel-houellebecq-rester-vivant-palais-de-tokyo-paris
 [^5]: https://www.t-online.de/digital/internet/id_78286508/diese-todesanzeige-von-hubert-martini-aus-trier-muessen-sie-lesen.html
+[^6]: https://youtu.be/C1RjYLonlsw?si=SLRwF-aCDaBkgWS6
