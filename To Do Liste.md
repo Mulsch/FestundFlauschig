@@ -1,5 +1,5 @@
-**Ausbaufähige / Fehlende Folgen**:
-
+**Ausbaufähige / Fehlende Folgen:**
+-
 ***Zwei alte Hasen erzählen von früher***:
 - Generell sind alle Folgen von ZaH noch mehr oder weniger ausbaufähig, aber insbesondere:
 	- Folge ZaH vom 20.05.2012
@@ -31,6 +31,9 @@
 	- Folge vom 07.02.2016
 	- Folge vom 28.02.2016
 	- Alle Folgen vom 13.03.2016 bis zum 24.04.2016
+ 
+**Weiteres:**
+-
 
 - Die Folgenzusammenfassungen bei S&S und ZaH vom 13.11.2011 bis zum 30.08.2015 können Fußnoten mit weiterführenden Links zu angesprochenen Themen vertragen.
 - Zusätzliche Übersichten zu den Podcasts "Olli Schulz on Tour" und "16 & Zwei" sind geplant, die vollständige Abarbeitung aller Fest & Flauschig Folgen hat jedoch zunächst Priorität.
