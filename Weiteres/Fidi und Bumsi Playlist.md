@@ -26,6 +26,7 @@
 - 26.06.2016: Sido - Hamdullah
 - 26.06.2016: Laura Marling - Night after Night
 - 26.06.2016: Fiona Apple - Daredevil
+- 04.07.2016: Fortuna Ehrenfeld - Ein analoges Mädchen
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
