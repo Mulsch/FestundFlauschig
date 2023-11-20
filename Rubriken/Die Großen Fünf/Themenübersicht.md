@@ -42,6 +42,7 @@
 *Filme*
 - Deutsche Überbewerte Filme (28.04.2013)
 - Comedy-Filme (21.02.2016)
+- Horrorfilme (25.03.2023)
 
 *Sonstiges*
 - TV-Kommissare (10.11.2013)
