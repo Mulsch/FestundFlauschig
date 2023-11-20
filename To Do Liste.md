@@ -34,5 +34,6 @@
 
 - Die Folgenzusammenfassungen bei S&S und ZaH vom 13.11.2011 bis zum 30.08.2015 können Fußnoten mit weiterführenden Links zu angesprochenen Themen vertragen.
 - Zusätzliche Übersichten zu den Podcasts "Olli Schulz on Tour" und "16 & Zwei" sind geplant, die vollständige Abarbeitung aller Fest & Flauschig Folgen hat jedoch zunächst Priorität.
-- Es fehlen noch Übersichten zu den Podcast-Rubriken (Die Großen Fünf und Entweder/Oder), diese werden zeitnah eingefügt und fortlaufend aktualisiert.
-- Eine spezielle Übersicht zu Empfehlungen der Moderatoren ist für den Podcast "Fest und Flauschig" geplant. Eine solche Übersicht für ZaH und S&S würde ein erneutes Hören der Folgen erfordern und steht dementsprechend hinten an.
+- Die Auflistung zur Rubrik "Entweder/Oder" fehlt.
+- "Die Großen Fünf" aus Sanft & Sorgfältig werden Stück für Stück nachgetragen (Stand 20.11.2023: 35/99)
+- Eine spezielle Übersicht zu Empfehlungen der Moderatoren ist voerst nur für den Podcast "Fest und Flauschig" in Arbeit. Eine solche Übersicht für ZaH und S&S würde ein erneutes Hören der Folgen erfordern und steht dementsprechend hinten an.
