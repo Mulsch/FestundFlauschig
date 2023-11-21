@@ -12,6 +12,7 @@
 - 04.07.2016: David Brent - Lady Gypsy
 - 06.07.2016: The Divine Comedy - Catherine The Great
 - 06.07.2016: Dota Kehr - Rennrad
+- 10.07.2016: Hannes Wader - Die Internationale
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
