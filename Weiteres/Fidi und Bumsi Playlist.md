@@ -10,6 +10,8 @@
 - 19.06.2016: Rufus Wainwright - Out Of The Game
 - 26.06.2016: The Burning Hell - Fuck The Government, I Love You!
 - 04.07.2016: David Brent - Lady Gypsy
+- 06.07.2016: The Divine Comedy - Catherine The Great
+- 06.07.2016: Dota Kehr - Rennrad
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -29,6 +31,7 @@
 - 26.06.2016: Fiona Apple - Daredevil
 - 04.07.2016: Fortuna Ehrenfeld - Ein analoges Mädchen
 - 04.07.2016: Das Bierbeben - Du träumst von alten Zeiten
+- 06.07.2016: J.J. Cale - Where the Sun Don't Shine
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
