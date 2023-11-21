@@ -28,3 +28,4 @@
 - Hat schonmal Nacktbilder verschickt (F&F, 05.06.2015, 1:00:00)
 - Ihm wurde bereits zweimal das Konto gepfändet (F&F, 12.06.2015, 7:30)
 - Erstes Konzert: Run DMC (F&F, 12.06.2016, 1:20:00)
+- Hatte früher ein Luftgewehr, "aber nie auf Lebendiges geschossen" (F&F, 06.07.2016, 22:00)
