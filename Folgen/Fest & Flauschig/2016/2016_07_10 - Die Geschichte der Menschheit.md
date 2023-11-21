@@ -1,2 +1,17 @@
 - Dauer: 1:08:00
-- Titelerklärung:
+- Titelerklärung: ab 4:45
+- *"Vicky, jetzt reicht's" Einspieler*
+- Jan hat schlechte Laune, war bei IKEA - Olli ist in Chicago und erzählt eine Geschichte, wie er aus Frust bei IKEA wieder gegangen ist
+- Olli schlägt Jan vor, eine Ayurveda Kur zu machen oder ins Schweigekloster zu gehen und redet über Leonard Cohen
+- Jan regt sich auf, dass er nicht mehr unter Leute gehen kann (In der Sauna gucken sie auf den Pimmel, draußen wollen sie Selfies) und vergleicht IKEA mit einem Flughafen
+- Jan erzählt Geschichte vom Ballermann, wurde von einer Gruppe Mädels nach Selfie gefragt, die allerdings nicht wussten, wer er ist (Dachten, er sei Daniel Brühl)
+- Olli erzählt vom Bassisten von "Halloween", den er mit 15 getroffen hat und von Hornhautraspeln
+- Gespräch über Füße (Jan ist mit seinen Füßen sehr zufrieden)
+- *"Er wollte ballern" Einspieler*
+- Gespräch über das Abschalten im Urlaub und Uwe Krause (Hatte sein Handy immer stumm)
+- Olli erzählt, dass er Resonanz auf sein künstlerisches Schaffen nicht besonders mag (Will nicht auf eine Sache reduziert werden)
+- Gespräch über Plattenläden und den Rücktritt von Nigel Farage, Jan glaubt noch nicht an den Brexit
+- Olli fordert Bedingungen von den Briten, wenn sie doch in Europa bleiben wollen (keine braune Soße)
+- EM-Finale wird besprochen, Olli glaubt, dass alles gescripted ist
+- Gespräch über Verschwörungstheorien und Jan erzählt, wie er Olli kennengelernt hat
+- Weiter: 32:55 
