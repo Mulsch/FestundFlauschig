@@ -1,0 +1,28 @@
+- Dauer: 45:32
+- Sendung beginnt nach Minute 40, deswegen nur ca. 45 Minuten lang
+- Jans Beschreibung seines Freizeitparks *Böhmerland* fehlt, Olli sagt, es war wie das Dritte Reich (Jan: "Ein Park, in dem es aussieht wie 1941")
+- Olli macht Wortspiele mit dem Namen "Hank" und will keine Fanpost mehr, in der er in irgendwelche Wohnzimmer eingeladen wird
+- Jan hat "Kinder Bueno White" für sich entdeckt und spricht über den Aspekt "Einigkeit, Recht und Freiheit" - Jan hält "Einigkeit" für überholt
+- Brexit-Gespräch
+- Ollis Telefon klingelt mitten in der Sendung (Seine Mutter ruft an, er drückt sie weg)
+- Gespräch über Angela Merkels Politik und die Mondlandung
+- Olli hat Steffen Seibert mit Tom Schilling bei ARTE kennengelernt, Olli erzählt noch Geschichten vom Kinderfernsehen und wie er Steffen Seibert im Fahrradladen getroffen hat
+- Olli hat sich beim Newsletter "Vollmond Info" angemeldet[^1]
+- Olli hatte einen Auftritt beim Kosmonauten-Festival, hat den Sänger von Kraftklub vollgequatscht, Michi Beck die Hand geschüttelt und Casper gesehen
+- Olli erzählt Mallorca-Urlaubsgeschichte und wurde von einem besoffenen Urlauber "Bibo" genannt
+- Jan fragt Olli nach Dota Kehr / Kleingeldprinzessin
+- Olli erzählt vom *Olliversum*, ein Freizeitpark mit Ollis Wünschen und Sehensüchten
+  - Olli spielt seinen *Olliversum*-Einspieler
+  - Auf dem ehemaligen Gelände des Hagenbecker Tierparks, Olli hat in der Nacht alle Tiere befreit (nur die schönen Tiere sind da geblieben)
+  - Große Halle mit perfektem Klima und guter Musik, jeder bekommt einen Bademantel
+  - Park ist nie überfüllt, alles ist immer gut abgesprochen, es gibt keine Autos
+  - Gibt gutes Essen, Blätterteig mit Rindfleisch und Käse, Übersättigung gibt es aber nicht
+  - Es gibt Kanäle zum Schwimmen und Zelte - in einem Zelt hält Olli Vorträge und spielt Musik
+  - Abends gibt es Crushed Ice Cocktails, Eintritt ist frei, gibt einen Raum mit Frisbeeringen und Völkerballmeisterschaften
+  - Bei 20.000 Besuchern wird der Park für immer geschlossen und Olli lebt mit allen dort
+  - Gibt einen Erotikbereich mit Irrgarten, eine große Schwimmhalle, Lumi-Lumi Behandlung und Buffet mit crunchigen Sachen und Nacho-Teller
+  - Keine Laptops, keine Handys, kein Außenkontakt, Hacker versuchen die Außenwelt zu zerstören
+- Jan möchte zukünftig sommerliche Smoothie-Rezepte in der Sendung droppen und erfindet das Tier "Al Pecino"
+- Jan "kratzt sich [zum Abschluss der Sendung] am Sack" und seine Hose reißt, Olli erzählt von seinem "Penis im Kartoffelsalat"-Gerücht
+
+[^1]: https://www.vollmond.info/de/vollmond-memo.html
