@@ -33,6 +33,8 @@
 - 04.07.2016: Fortuna Ehrenfeld - Ein analoges Mädchen
 - 04.07.2016: Das Bierbeben - Du träumst von alten Zeiten
 - 06.07.2016: J.J. Cale - Where the Sun Don't Shine
+- 10.07.2016: I Got You On Tape - Spinning For The Cause
+  - *Olli: Gut zum Autofahren* 
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
