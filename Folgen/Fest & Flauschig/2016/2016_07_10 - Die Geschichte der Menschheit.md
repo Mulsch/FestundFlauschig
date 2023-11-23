@@ -25,4 +25,5 @@
 - Olli erzählt erneut vom Drogenhund Pieke und erklärt, wie er Jan beschützen würde
 - Beide sprechen über Gewalt-Handgriffe
 - Olli erzählt Geschichte, wie er in ein Mädchen verliebt war und er sich aus Liebeskummer bei Hannes Wader betrunken auf die Bühne stellen wollte
-- Weiter: 1:00:04 
+- Name "Brüllberger" wird zum Abschluss offiziell erwähnt, in Anlehnung an Sandra Maischberger
+- Jan liest Fanpost zum Thema "Bußgeldbescheide in den Niederlanden" vor
