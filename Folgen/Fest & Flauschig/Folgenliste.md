@@ -38,3 +38,504 @@
 - Folge 188 / 38: Ordnung ist das halbe Leben - 19.03.2017
 - Folge 189 / 39: Honig im Tee - 26.03.2017
 - Folge 190 / 40: Karriereknick - 02.04.2017
+- Folge 191 / 41: Gehacked - 01.04.2017
+- Folge 192 / 42: Gemischte Gefühle - 01.04.2017
+- Folge 193 / 43: Die große Thailandwoche - 01.04.2017
+- Folge 194 / 44: Tabletten gegen Alles - 01.04.2017
+- Folge 195 / 45: Kurz vor dem Absprung - 01.05.2017
+- Folge 196 / 46: Der große Narzissmus-Test - 01.05.2017
+- Folge 197 / 47: Quote, Quote, Quote - das Leben ist gar nicht mal so schlecht - 01.05.2017
+- Folge 198 / 48: Melancholie - 01.05.2017
+- Folge 199 / 49: Morgenstund hat Jan und Olli im Mund - 01.06.2017
+- Folge 200 / 50: Clickbait - 01.06.2017
+- Folge 201 / 51: Umgezogene Jungs - 01.06.2017
+- Folge 202 / 52: Spitten und Biten (mit Ali As) - 01.06.2017
+- Folge 203 / 53: Willkommen auf Schloss Olli - 01.07.2017
+- Folge 204 / 54: Das große Finale (vor der Sommerpause) - 01.07.2017
+- Folge 205 / 55: Das große Eszett - 01.07.2017
+- Folge 206 / 56: Die großen 5 Gnadenhof-Promis - 01.07.2017
+- Folge 207 / 57: Verhörtipps - 01.07.2017
+- Folge 208 / 58: Kinderfernsehen - 01.08.2017
+- Folge 209 / 59: An Afrika denken - 01.08.2017
+- Folge 210 / 60: Thorsten vor Gülkan - 01.08.2017
+- Folge 211 / 61: Wir hassen Internet - 01.08.2017
+- Folge 212 / 62: Schulz vs. Böhmermann - 01.09.2017
+- Folge 213 / 63: Kosmetik und Pflege - 01.09.2017
+- Folge 214 / 64: Dornige Probleme - 01.09.2017
+- Folge 215 / 65: Müssen wir alle sterben? - 01.09.2017
+- Folge 216 / 66: Drollige Aussichten - 01.10.2017
+- Folge 217 / 67: Sanft &amp; Sorgfältig - 01.10.2017
+- Folge 218 / 68: Feedbacks und Upgrades - 01.10.2017
+- Folge 219 / 69: Die Live Show - 01.10.2017
+- Folge 220 / 70: The International Show - 01.10.2017
+- Folge 221 / 71: Die ersten Mandarinen - 01.11.2017
+- Folge 222 / 72: Niedlich, niedlich - 01.11.2017
+- Folge 223 / 73: Jörn &amp; Olaf - 01.11.2017
+- Folge 224 / 74: Wieso machen Sie das? - 01.11.2017
+- Folge 225 / 75: Endlich wieder Biathlon - 01.12.2017
+- Folge 226 / 76: Unser Mann in Russland - 01.12.2017
+- Folge 227 / 77: Zu faul für Sexsucht - 01.12.2017
+- Folge 228 / 78: Der Fest &amp; Flauschig Weihnachtszirkus - Teil 1 - 01.12.2017
+- Folge 229 / 79: Der Fest &amp; Flauschig Weihnachtszirkus - Teil 2 - 01.12.2017
+- Folge 230 / 80: Raclette und Fondue - 01.12.2017
+- Folge 231 / 81: Das Jahr des Menschen - 01.01.2018
+- Folge 232 / 82: Ich mach bubu, was machst Du? - 01.01.2018
+- Folge 233 / 83: Luke, Kanye, Dave, Mos und ich - 01.02.2018
+- Folge 234 / 84: The future is now - 01.02.2018
+- Folge 235 / 85: Tiddenundschüps - 01.02.2018
+- Folge 236 / 86: Moralische Fragen - 01.02.2018
+- Folge 237 / 87: Russenpeitsche - 01.03.2018
+- Folge 238 / 88: Forken im Nacken - 01.03.2018
+- Folge 239 / 89: Rock 'n' Roll Edition - 01.03.2018
+- Folge 240 / 90: Seemannsgarn und Räuberpistolen - 01.03.2018
+- Folge 241 / 91: Aufgewacht in Zwickau - 01.04.2018
+- Folge 242 / 92: Opa bei Madame Sibylle - 01.04.2018
+- Folge 243 / 93: The Winner Takes It All - 01.04.2018
+- Folge 244 / 94: Oh, Du schöne Spargeltime - 01.04.2018
+- Folge 245 / 95: Leichte Kost - 01.04.2018
+- Folge 246 / 96: About You - 01.05.2018
+- Folge 247 / 97: Humans Of Late Capitalism - 01.05.2018
+- Folge 248 / 98: 2 Jahre - 01.05.2018
+- Folge 249 / 99: Autobiografie - 01.05.2018
+- Folge 250 / 100: Nix geschafft und schon 3. Juni - 01.06.2018
+- Folge 251 / 101: Der weiße Hai - 01.06.2018
+- Folge 252 / 102: Flotter Dreier - 01.06.2018
+- Folge 253 / 103: New York Cheesecake - 01.06.2018
+- Folge 254 / 104: Tomorrow Belongs To Me - 01.07.2018
+- Folge 255 / 105: Köln-Brach - 01.07.2018
+- Folge 256 / 106: Laid Back In The Arms Of Summer - 01.07.2018
+- Folge 257 / 107: Weltkrieg 3, aber erstmal Las Vegas - 01.07.2018
+- Folge 258 / 108: Die großen 5 Nachbarn - 01.07.2018
+- Folge 259 / 109: Sommertipps - 01.08.2018
+- Folge 260 / 110: Event Airbnb mit Promis - 01.08.2018
+- Folge 261 / 111: Albern und ein bisschen lustig - 01.08.2018
+- Folge 262 / 112: Neuer Kiefer - 01.08.2018
+- Folge 263 / 113: Zwei hässliche Deutsche tanken Super - 01.09.2018
+- Folge 264 / 114: Am toten Punkt - 01.09.2018
+- Folge 265 / 115: Unerwartet beendet - 01.09.2018
+- Folge 266 / 116: Die 100. - Folge - Live aus Hamburg - 01.09.2018
+- Folge 267 / 117: Die 101. - Folge - Live aus Hamburg - 01.09.2018
+- Folge 268 / 118: Die Sekte - 01.10.2018
+- Folge 269 / 119: Milestones - 01.10.2018
+- Folge 270 / 120: Whiskey und Chips - 01.10.2018
+- Folge 271 / 121: Leben und Wohnen - 01.10.2018
+- Folge 272 / 122: Naked Attraction - 01.11.2018
+- Folge 273 / 123: Mittelmäßigkeit - 01.11.2018
+- Folge 274 / 124: Morphium fürs Volk - 01.11.2018
+- Folge 275 / 125: Liebe auf sehr lange Distanz - 01.11.2018
+- Folge 276 / 126: Kotze in der Kuschelecke - 01.12.2018
+- Folge 277 / 127: Höhle bauen - 01.12.2018
+- Folge 278 / 128: Vaddi legt die Füße hoch - 01.12.2018
+- Folge 279 / 129: Unplugged 2 - Live aus Bochum - 01.12.2018
+- Folge 280 / 130: Firm &amp; Fluffy - Live aus Bochum - 01.12.2018
+- Folge 281 / 131: Olli an Jan - 01.12.2018
+- Folge 282 / 132: Jan an Olli - 01.01.2019
+- Folge 283 / 133: Olli wieder an Jan - 01.01.2019
+- Folge 284 / 134: Jan wieder an Olli - 01.01.2019
+- Folge 285 / 135: Leipziger Einerlei - 01.01.2019
+- Folge 286 / 136: Partymischung - 01.02.2019
+- Folge 287 / 137: Das Model und der Star - 01.02.2019
+- Folge 288 / 138: Operetten-Bär, Makkaroni-Bär und Amtsman - 01.02.2019
+- Folge 289 / 139: Beweg dich nicht und guck mich an - 01.02.2019
+- Folge 290 / 140: Sightseeing - 01.03.2019
+- Folge 291 / 141: You are not alone - 01.03.2019
+- Folge 292 / 142: Im Panic Room von Günther Jauch - 01.03.2019
+- Folge 293 / 143: Geschlechtsverkehr in Paderborn - 01.03.2019
+- Folge 294 / 144: Du Altes Suppenstück - 01.03.2019
+- Folge 295 / 145: Die große Verbrauchersendung - 01.04.2019
+- Folge 296 / 146: Geldscheingesichter - 01.04.2019
+- Folge 297 / 147: REALTALK: Böhmermann gesteht, Schulz ist fassungslos - 01.04.2019
+- Folge 298 / 148: Ehrenhafte Welt - 01.04.2019
+- Folge 299 / 149: Wir haben den Galgen geprüft - 01.05.2019
+- Folge 300 / 150: Das Ende von &quot;Fest &amp; Flauschig&quot; - 01.05.2019
+- Folge 301 / 151: Männergrippe - 01.05.2019
+- Folge 302 / 152: Dicke Sahne - 01.05.2019
+- Folge 303 / 153: Hey, bleib doch mal stehen! - 01.06.2019
+- Folge 304 / 154: Milchreis und Bier - 01.06.2019
+- Folge 305 / 155: Die Mentalisten - 01.06.2019
+- Folge 306 / 156: Die große Whiskey Edition - 01.06.2019
+- Folge 307 / 157: Fanta, Caprisonne, Bubbles Blaubeer - 01.06.2019
+- Folge 308 / 158: Keine Superlative - 01.07.2019
+- Folge 309 / 159: Sommerfun mit Olli und Jan - 01.07.2019
+- Folge 310 / 160: Sommerbrief #1 - 01.07.2019
+- Folge 311 / 161: Sommerbrief #2 - 01.07.2019
+- Folge 312 / 162: Sommerbrief #3 - 01.08.2019
+- Folge 313 / 163: Sommerbrief #4 - 01.08.2019
+- Folge 314 / 164: Sommerbrief #5 - 01.08.2019
+- Folge 315 / 165: Sommerbrief #6 - 01.08.2019
+- Folge 316 / 166: Schöner Penis Deutschland - 01.09.2019
+- Folge 317 / 167: Crunchy - 01.09.2019
+- Folge 318 / 168: 30959997666 - 01.09.2019
+- Folge 319 / 169: Solange so lala - 01.09.2019
+- Folge 320 / 170: Wenn Ihrs dirty wollt - 01.09.2019
+- Folge 321 / 171: Ich lauf doch schon so schnell ich kann. - 01.10.2019
+- Folge 322 / 172: Im Kerker des Kalifen - 01.10.2019
+- Folge 323 / 173: Oh Shit, Frau Schmidt! - 01.10.2019
+- Folge 324 / 174: DARÜBER müsst Ihr mal was machen! - 01.10.2019
+- Folge 325 / 175: Die leichte Sendung - 01.11.2019
+- Folge 326 / 176: Ulrike hat keinen Bock - 01.11.2019
+- Folge 327 / 177: &quot;Firm & Fluffy&quot; L.A. Style - 01.11.2019
+- Folge 328 / 178: What? What? Ursula? What? Squirt! - 01.11.2019
+- Folge 329 / 179: Eine Sendung wie ein Autounfall - 01.12.2019
+- Folge 330 / 180: Für die Story hätte ich's gemacht - 01.12.2019
+- Folge 331 / 181: Provinzielle Verhältnisse - 01.12.2019
+- Folge 332 / 182: Die Pipi-Girls von Vegesack - 01.12.2019
+- Folge 333 / 183: Wir sind Vegesack - 01.12.2019
+- Folge 334 / 184: Lass die Knoten platzen - 01.01.2020
+- Folge 335 / 185: Auf die Hand - KW 05/2020 - 01.01.2020
+- Folge 336 / 186: Ramen-Fix fürs Leben - 01.02.2020
+- Folge 337 / 187: Auf die Hand - KW 06/2020 - 01.02.2020
+- Folge 338 / 188: Wirsing-Wickel für Thüringen - 01.02.2020
+- Folge 339 / 189: Auf die Hand - KW 07/2020 - 01.02.2020
+- Folge 340 / 190: Ein Fetisch kommt selten allein - 01.02.2020
+- Folge 341 / 191: Auf die Hand - KW 08/2020 - 01.02.2020
+- Folge 342 / 192: Fahri Yardim - 01.02.2020
+- Folge 343 / 193: Auf die Hand - KW 09/2020 - 01.02.2020
+- Folge 344 / 194: Apokalypse Now! - Wir müssen alle sterben! - 01.03.2020
+- Folge 345 / 195: Auf die Hand - KW 10/2020 - 01.03.2020
+- Folge 346 / 196: Die Erde hat Fieber - 01.03.2020
+- Folge 347 / 197: Auf die Hand - KW 11/2020 - 01.03.2020
+- Folge 348 / 198: Omas ohne Ende - 01.03.2020
+- Folge 349 / 199: Fest &amp; Flauschig Zuhause - 01 - 01.03.2020
+- Folge 350 / 200: Fest &amp; Flauschig Zuhause - 02 - 01.03.2020
+- Folge 351 / 201: Fest &amp; Flauschig Zuhause - 03 - 01.03.2020
+- Folge 352 / 202: Viele Grüße gehen raus - 01.03.2020
+- Folge 353 / 203: Fest &amp; Flauschig Zuhause - 04 - 01.03.2020
+- Folge 354 / 204: Fest &amp; Flauschig Zuhause - 05 - 01.03.2020
+- Folge 355 / 205: Fest &amp; Flauschig Zuhause - 06 - 01.03.2020
+- Folge 356 / 206: Fest &amp; Flauschig Zuhause - 07 - 01.03.2020
+- Folge 357 / 207: Sexkarussell im Kopf - 01.03.2020
+- Folge 358 / 208: Fest &amp; Flauschig Zuhause - 08 - 01.03.2020
+- Folge 359 / 209: Fest &amp; Flauschig Zuhause - 09 - 01.04.2020
+- Folge 360 / 210: Fest &amp; Flauschig Zuhause - 10 - 01.04.2020
+- Folge 361 / 211: Fest &amp; Flauschig Zuhause - 11 - 01.04.2020
+- Folge 362 / 212: Only Human - 01.04.2020
+- Folge 363 / 213: Fest &amp; Flauschig Zuhause - 12 - 01.04.2020
+- Folge 364 / 214: Fest &amp; Flauschig Zuhause - 13 - 01.04.2020
+- Folge 365 / 215: Fest &amp; Flauschig Zuhause - 14 - 01.04.2020
+- Folge 366 / 216: Fest &amp; Flauschig Zuhause - 15 - 01.04.2020
+- Folge 367 / 217: Im Sushi ist auch Gurke drin - 01.04.2020
+- Folge 368 / 218: Fest &amp; Flauschig Zuhause - 16 - 01.04.2020
+- Folge 369 / 219: Fest &amp; Flauschig Zuhause - 17 - 01.04.2020
+- Folge 370 / 220: Fest &amp; Flauschig Zuhause - 18 - 01.04.2020
+- Folge 371 / 221: Fest &amp; Flauschig Zuhause - 19 - 01.04.2020
+- Folge 372 / 222: Kein schlechtes Wort feat. Resident DJ Bjarne Mädel - 01.04.2020
+- Folge 373 / 223: Fest &amp; Flauschig Zuhause - 20 - 01.04.2020
+- Folge 374 / 224: Fest &amp; Flauschig Zuhause - 21 - 01.04.2020
+- Folge 375 / 225: Fest &amp; Flauschig Zuhause - 22 - 01.04.2020
+- Folge 376 / 226: Fest &amp; Flauschig Zuhause - 23 - 01.04.2020
+- Folge 377 / 227: Schlafanzugtag - 01.04.2020
+- Folge 378 / 228: Fest &amp; Flauschig Zuhause - 24 - 01.04.2020
+- Folge 379 / 229: Quesadilla Mokassins - 01.05.2020
+- Folge 380 / 230: Fest &amp; Flauschig Zuhause - 25 - 01.05.2020
+- Folge 381 / 231: Der Feuersalamander scheißt sein Kind aus und geht  - 01.05.2020
+- Folge 382 / 232: Fest &amp; Flauschig Zuhause - 26 - 01.05.2020
+- Folge 383 / 233: SECRET LEVEL! (Bitte niemandem sagen, dass es diese - Folge gibt! GEHEIM! TOP SECRET!) - 01.05.2020
+- Folge 384 / 234: Impulse für Aufschwung und Wirtschaft  - 01.05.2020
+- Folge 385 / 235: Fest &amp; Flauschig Zuhause - 27 - 01.05.2020
+- Folge 386 / 236: unauffaelliger.0fb2cc74-4a75-dateiname-c1a19e7ff-buttplugdc4.FuF.wav - 01.05.2020
+- Folge 387 / 237: Die Bücherwand in deinem Gesicht - 01.05.2020
+- Folge 388 / 238: Fest &amp; Flauschig Zuhause - 28 - 01.05.2020
+- Folge 389 / 239: Betriebsversammlung: Dr. Alexander Kekulé – das Musical (Aerosol) - 01.05.2020
+- Folge 390 / 240: Schweineschwarten im Supermarkt - 01.05.2020
+- Folge 391 / 241: Fest &amp; Flauschig Zuhause - 29 - 01.06.2020
+- Folge 392 / 242: Katy Perry - Dark Horse - 01.06.2020
+- Folge 393 / 243: Hurra, der Wels geht unter! - 01.06.2020
+- Folge 394 / 244: Fest &amp; Flauschig Zuhause - 30 - 01.06.2020
+- Folge 395 / 245: 12062020olympiaA2M_DP-GB/BoyOnBoy - 01.06.2020
+- Folge 396 / 246: Das Geheimnis der Marzipandecke - 01.06.2020
+- Folge 397 / 247: Fest &amp; Flauschig Zuhause - 31 - 01.06.2020
+- Folge 398 / 248: 5% in Fulda - 01.06.2020
+- Folge 399 / 249: Die alte Soße gehört auf den Croque - 01.06.2020
+- Folge 400 / 250: Fest &amp; Flauschig Zuhause - 32 - 01.06.2020
+- Folge 401 / 251: THX, VHS und FSK - 01.06.2020
+- Folge 402 / 252: Bier &amp; Weißweinschorle - 01.06.2020
+- Folge 403 / 253: Fest &amp; Flauschig Zuhause - 33 - 01.06.2020
+- Folge 404 / 254: Die Yogalehrerin - 01.07.2020
+- Folge 405 / 255: Back to life, back to reality  - 01.08.2020
+- Folge 406 / 256: Auf die Hand - KW 34/2020 - 01.08.2020
+- Folge 407 / 257: Schweinebusen für alle - 01.08.2020
+- Folge 408 / 258: Auf die Hand - KW 35/2020 - 01.08.2020
+- Folge 409 / 259: Maske auf, die Trottel kommen! - 01.08.2020
+- Folge 410 / 260: Auf die Hand - KW 36/2020 - 01.09.2020
+- Folge 411 / 261: Sicherheit geht vor  - 01.09.2020
+- Folge 412 / 262: Auf die Hand - KW 37/2020 - 01.09.2020
+- Folge 413 / 263: Willkommen im Hegelverein  - 01.09.2020
+- Folge 414 / 264: Auf die Hand - KW 38/2020 - 01.09.2020
+- Folge 415 / 265: Zwei CIS-Dudes am Arsch - 01.09.2020
+- Folge 416 / 266: Auf die Hand - KW 39/2020 - 01.09.2020
+- Folge 417 / 267: Die Bayern kommen - 01.09.2020
+- Folge 418 / 268: Auf die Hand - KW 40/2020  - 01.09.2020
+- Folge 419 / 269: Sehnsucht nach New York / Fernsehabend mit Jan und Olli - 01.10.2020
+- Folge 420 / 270: Auf die Hand - KW 41/2020 - 01.10.2020
+- Folge 421 / 271: Wahn und Infrastruktur - 01.10.2020
+- Folge 422 / 272: Auf die Hand - KW 42/2020 - 01.10.2020
+- Folge 423 / 273: Barfuß auf der Rasierklinge - 01.10.2020
+- Folge 424 / 274: Auf die Hand - KW 43/2020 - 01.10.2020
+- Folge 425 / 275: Hacker und Checker - 01.10.2020
+- Folge 426 / 276: Auf die Hand - KW 44/2020  - 01.10.2020
+- Folge 427 / 277: Too drunk to fuck - 01.10.2020
+- Folge 428 / 278: Auf die Hand - KW 45/2020 - 01.11.2020
+- Folge 429 / 279: ficki ficki licki licki - 01.11.2020
+- Folge 430 / 280: Auf die Hand - KW 46/2020 - 01.11.2020
+- Folge 431 / 281: Bettgeschichten und Bolognese - 01.11.2020
+- Folge 432 / 282: Auf die Hand - KW 47/2020 - 01.11.2020
+- Folge 433 / 283: Tresentalk mit Jan &amp; Olli - 01.11.2020
+- Folge 434 / 284: Auf die Hand - KW 48/2020 - 01.11.2020
+- Folge 435 / 285: Raus aus der Verwahrlosung  - 01.11.2020
+- Folge 436 / 286: Auf die Hand - KW 49/2020 - 01.12.2020
+- Folge 437 / 287: Die Wut ist die Glut - 01.12.2020
+- Folge 438 / 288: Auf die Hand - KW 50/2020 - 01.12.2020
+- Folge 439 / 289: Boomercringe - 01.12.2020
+- Folge 440 / 290: #BOOMERCRINGE 1 - 01.12.2020
+- Folge 441 / 291: Weihnachten zuhause - 01.12.2020
+- Folge 442 / 292: Best of Fest &amp; Flauschig 2016 - 2020 - 01.12.2020
+- Folge 443 / 293: Gamechanger für die Fremdenlegion - 01.01.2021
+- Folge 444 / 294: #BOOMERCRINGE 2 - 01.01.2021
+- Folge 445 / 295: Haarriss im Phasenprüfer - 01.01.2021
+- Folge 446 / 296: #BOOMERCRINGE 3 - 01.02.2021
+- Folge 447 / 297: Wir sind immer noch auf Bali - 01.02.2021
+- Folge 448 / 298: #BOOMERCRINGE 4 - 01.02.2021
+- Folge 449 / 299: Kölle Köpf Geröntgt - 01.02.2021
+- Folge 450 / 300: #BOOMERCRINGE 5 - 01.02.2021
+- Folge 451 / 301: Müde in die Scheiße reiten - 01.02.2021
+- Folge 452 / 302: #BOOMERCRINGE 6 - 01.02.2021
+- Folge 453 / 303: Überblick verloren - 01.02.2021
+- Folge 454 / 304: #BOOMERCRINGE 7 - 01.03.2021
+- Folge 455 / 305: Don’t stand so close to me - 01.03.2021
+- Folge 456 / 306: #BOOMERCRINGE 8 - 01.03.2021
+- Folge 457 / 307: Freddie would have wanted it this way - 01.03.2021
+- Folge 458 / 308: #BOOMERCRINGE 9 - 01.03.2021
+- Folge 459 / 309: „Im Freundeskreis bin ich der Rocker!“ - 01.03.2021
+- Folge 460 / 310: #BOOMERCRINGE 10 - 01.03.2021
+- Folge 461 / 311: Am Ende ist es immer das Ego - 01.03.2021
+- Folge 462 / 312: #BOOMERCRINGE 11 - 01.03.2021
+- Folge 463 / 313: Aufhängen! Alle aufhängen! - 01.04.2021
+- Folge 464 / 314: #BOOMERCRINGE 12 - 01.04.2021
+- Folge 465 / 315: Podcast, aber normal - 01.04.2021
+- Folge 466 / 316: #BOOMERCRINGE 13 - 01.04.2021
+- Folge 467 / 317: Slow Joe from the Last Row - 01.04.2021
+- Folge 468 / 318: #BOOMERCRINGE 16 - 01.04.2021
+- Folge 469 / 319: Blaulicht und Rotlicht - 01.04.2021
+- Folge 470 / 320: #BOOMERCRINGE 17 - 01.04.2021
+- Folge 471 / 321: Komplett Gänsehals - 01.05.2021
+- Folge 472 / 322: #BOOMERCRINGE 18 - 01.05.2021
+- Folge 473 / 323: Danke für alles! - 01.05.2021
+- Folge 474 / 324: #BOOMERCRINGE 19 - 01.05.2021
+- Folge 475 / 325: Party im Grill - 01.05.2021
+- Folge 476 / 326: #BOOMERCRINGE 20 - 01.05.2021
+- Folge 477 / 327: Zärtliche Rebellen - 01.05.2021
+- Folge 478 / 328: #BOOMERCRINGE 21 - 01.05.2021
+- Folge 479 / 329: Todesengel Maischberger - 01.05.2021
+- Folge 480 / 330: #BOOMERCRINGE 22 - 01.06.2021
+- Folge 481 / 331: Gefüllter Karpfen (Die schwierige Sendung) - 01.06.2021
+- Folge 482 / 332: #BOOMERCRINGE 23 - 01.06.2021
+- Folge 483 / 333: Die Sendung mit der weißen Hose - 01.06.2021
+- Folge 484 / 334: #BOOMERCRINGE 24 - 01.06.2021
+- Folge 485 / 335: Sonnenstich Balla Balla - 01.06.2021
+- Folge 486 / 336: #BOOMERCRINGE 25 - 01.06.2021
+- Folge 487 / 337: Der Wels in der Brandung - 01.06.2021
+- Folge 488 / 338: #BOOMERCRINGE 26 - 01.06.2021
+- Folge 489 / 339: Keine Risikobegegnung in den nächsten acht Wochen - 01.07.2021
+- Folge 490 / 340: Der Aal eckt nicht an! - 01.08.2021
+- Folge 491 / 341: #BOOMERCRINGE 35 - 01.08.2021
+- Folge 492 / 342: Heilende Steine und Mixed Pakoras - 01.09.2021
+- Folge 493 / 343: #BOOMERCRINGE 36 - 01.09.2021
+- Folge 494 / 344: Ein Ei guckt raus - 01.09.2021
+- Folge 495 / 345: #BOOMERCRINGE 37 - 01.09.2021
+- Folge 496 / 346: Zwei Impfdurchbrüche an der Medienfront - 01.09.2021
+- Folge 497 / 347: #BOOMERCRINGE 38 - 01.09.2021
+- Folge 498 / 348: Das ist nicht mehr meine Welt / Die aktuelle Wahlsendung - 01.09.2021
+- Folge 499 / 349: #BOOMERCRINGE 39 - 01.09.2021
+- Folge 500 / 350: Die Ekard Vermutung - 01.10.2021
+- Folge 501 / 351: #BOOMERCRINGE 40 - 01.10.2021
+- Folge 502 / 352: ne Sieben auf der Bristol-Skala - 01.10.2021
+- Folge 503 / 353: #BOOMERCRINGE 41 - 01.10.2021
+- Folge 504 / 354: Geburtstagsparty mit Peter Alupka - 01.10.2021
+- Folge 505 / 355: #BOOMERCRINGE 42 - 01.10.2021
+- Folge 506 / 356: Tequila Time mit Jan und Olli - 01.10.2021
+- Folge 507 / 357: #BOOMERCRINGE 43 - 01.10.2021
+- Folge 508 / 358: The Big Sorry - 01.10.2021
+- Folge 509 / 359: #BOOMERCRINGE 44 - 01.11.2021
+- Folge 510 / 360: Irgendwann ist alles cringe - 01.11.2021
+- Folge 511 / 361: #BOOMERCRINGE 45 - 01.11.2021
+- Folge 512 / 362: Mediengequatsche - 01.11.2021
+- Folge 513 / 363: #BOOMERCRINGE 46 - 01.11.2021
+- Folge 514 / 364: Bite It You Scum - 01.11.2021
+- Folge 515 / 365: #BOOMERCRINGE 47 - 01.11.2021
+- Folge 516 / 366: Fuck up Tranparenz - 01.11.2021
+- Folge 517 / 367: #BOOMERCRINGE 48 - 01.11.2021
+- Folge 518 / 368: Safeword: Jan und Olli - 01.12.2021
+- Folge 519 / 369: #BOOMERCRINGE 49 - 01.12.2021
+- Folge 520 / 370: Patientenverfügung fürs Showgeschäft - 01.12.2021
+- Folge 521 / 371: #BOOMERCRINGE 50 - 01.12.2021
+- Folge 522 / 372: Himmlisches Boosterfest  - 01.12.2021
+- Folge 523 / 373: Putin hat noch Bock - 01.01.2022
+- Folge 524 / 374: #BOOMERCRINGE 4 - 01.01.2022
+- Folge 525 / 375: Die melancholischen Astronauten - 01.01.2022
+- Folge 526 / 376: #BOOMERCRINGE 5 - 01.02.2022
+- Folge 527 / 377: Lindner &amp; Merz – der neue Podcast - 01.02.2022
+- Folge 528 / 378: #BOOMERCRINGE 6  - 01.02.2022
+- Folge 529 / 379: Olli ist Nichtraucher - 01.02.2022
+- Folge 530 / 380: #BOOMERCRINGE 7 - 01.02.2022
+- Folge 531 / 381: Eine Tasse Teer - 01.02.2022
+- Folge 532 / 382: #BOOMERCRINGE 8 - 01.02.2022
+- Folge 533 / 383: First Emotions - 01.02.2022
+- Folge 534 / 384: #BOOMERCRINGE 9 - 01.03.2022
+- Folge 535 / 385: Böhmi sicko - 01.03.2022
+- Folge 536 / 386: #BOOMERCRINGE 10 - 01.03.2022
+- Folge 537 / 387: 12 Meter ohne Kopf - 01.03.2022
+- Folge 538 / 388: #BOOMERCRINGE 11 - 01.03.2022
+- Folge 539 / 389: Husti Husti Husti Husti Husti - 01.03.2022
+- Folge 540 / 390: #BOOMERCRINGE 12 - 01.03.2022
+- Folge 541 / 391: Getten &amp; Spreaden - 01.03.2022
+- Folge 542 / 392: #BOOMERCRINGE 13 - 01.03.2022
+- Folge 543 / 393: Wo ist denn jetzt die Münze? - 01.04.2022
+- Folge 544 / 394: #BOOMERCRINGE 14 - 01.04.2022
+- Folge 545 / 395: Aubergine / Untergine - 01.04.2022
+- Folge 546 / 396: #BOOMERCRINGE 15 - 01.04.2022
+- Folge 547 / 397: Der gute Olli - 01.04.2022
+- Folge 548 / 398: #BOOMERCRINGE 16 - 01.04.2022
+- Folge 549 / 399: Francesco Rosinetti is coming! - 01.04.2022
+- Folge 550 / 400: #BOOMERCRINGE 17 - 01.04.2022
+- Folge 551 / 401: Ratten in der VIP-Loge - 01.04.2022
+- Folge 552 / 402: #BOOMERCRINGE 18 - 01.05.2022
+- Folge 553 / 403: Willy Moese und die Schatten der Vergangenheit - 01.05.2022
+- Folge 554 / 404: #BOOMERCRINGE 19 - 01.05.2022
+- Folge 555 / 405: Im geheimen Unterwasser-Sexschloss von Sibylle Berg - 01.05.2022
+- Folge 556 / 406: #BOOMERCRINGE 20 - 01.05.2022
+- Folge 557 / 407: Wie Gott sie schuf - 01.05.2022
+- Folge 558 / 408: #BOOMERCRINGE 21 - 01.05.2022
+- Folge 559 / 409: Der alte Mann und sein Shazam - 01.05.2022
+- Folge 560 / 410: #BOOMERCRINGE 22 - 01.05.2022
+- Folge 561 / 411: James Hetfield, Didi Hallervorden, Christian Lindner - 01.06.2022
+- Folge 562 / 412: #BOOMERCRINGE 23 - 01.06.2022
+- Folge 563 / 413: Degenerierte Wohlstandsfüße - 01.06.2022
+- Folge 564 / 414: #BOOMERCRINGE 24 - 01.06.2022
+- Folge 565 / 415: Einfach müde - 01.06.2022
+- Folge 566 / 416: #BOOMERCRINGE 25 - 01.06.2022
+- Folge 567 / 417: Aua, aua, Platzwunde - 01.06.2022
+- Folge 568 / 418: Venice Beach/Mosel - 01.07.2022
+- Folge 569 / 419: Jamaika/Italien - 01.07.2022
+- Folge 570 / 420: Dritte Woche ohne F&amp;F - 01.07.2022
+- Folge 571 / 421: Balkonien - 01.07.2022
+- Folge 572 / 422: Fidi &amp; Bumsi - 01.07.2022
+- Folge 573 / 423: Gladbeck - 01.08.2022
+- Folge 574 / 424: Südtiroler Brust - 01.08.2022
+- Folge 575 / 425: Ladesäule für die Ohren - 01.08.2022
+- Folge 576 / 426:  #BOOMERCRINGE 34 - 01.08.2022
+- Folge 577 / 427: Gesund durch die Schwangerschaft  - 01.08.2022
+- Folge 578 / 428: #BOOMERCRINGE 35 - 01.08.2022
+- Folge 579 / 429: Live aus dem IFA Sommergarten - 01.09.2022
+- Folge 580 / 430: #BOOMERCRINGE 36 - 01.09.2022
+- Folge 581 / 431: Der Podcast mit dem Geheimnis  - 01.09.2022
+- Folge 582 / 432: #BOOMERCRINGE 37 - 01.09.2022
+- Folge 583 / 433: Heute ist mal Dildostopp! - 01.09.2022
+- Folge 584 / 434: #BOOMERCRINGE 38 - 01.09.2022
+- Folge 585 / 435: Gott so nah wie nie - 01.09.2022
+- Folge 586 / 436: #BOOMERCRINGE 39 - 01.09.2022
+- Folge 587 / 437: Triggerwarnung mit zwei Köpfen - 01.10.2022
+- Folge 588 / 438: #BOOMERCRINGE 40 - 01.10.2022
+- Folge 589 / 439: Der Doppelstampfer - 01.10.2022
+- Folge 590 / 440: #BOOMERCRINGE 41 - 01.10.2022
+- Folge 591 / 441: Voltaire wär bei Podimo - 01.10.2022
+- Folge 592 / 442: #BOOMERCRINGE 42 - 01.10.2022
+- Folge 593 / 443: Auch Geheimagentinnen brauchen mal Pause - 01.10.2022
+- Folge 594 / 444: #BOOMERCRINGE 43 - 01.10.2022
+- Folge 595 / 445: Die Sendung mit dem Twist - 01.10.2022
+- Folge 596 / 446: #BOOMERCRINGE 44 - 01.11.2022
+- Folge 597 / 447: Energy Balls kneten - 01.11.2022
+- Folge 598 / 448: #BOOMERCRINGE 45 - 01.11.2022
+- Folge 599 / 449: Der Mensch ist schlecht und kriegt's nicht besser hin - 01.11.2022
+- Folge 600 / 450: #BOOMERCRINGE 46 - 01.11.2022
+- Folge 601 / 451: Die Abenteuer von Schraubezahn - 01.11.2022
+- Folge 602 / 452: #BOOMERCRINGE 47 - 01.11.2022
+- Folge 603 / 453: Älternabend - 01.11.2022
+- Folge 604 / 454: #BOOMERCRINGE 48 - 01.11.2022
+- Folge 605 / 455: Wir geben gerne - 01.12.2022
+- Folge 606 / 456: #BOOMERCRINGE 49 - 01.12.2022
+- Folge 607 / 457: Playboy Mann des Jahres - 01.12.2022
+- Folge 608 / 458: #BOOMERCRINGE 50 - 01.12.2022
+- Folge 609 / 459: Fest &amp; Festlich - Weihnachten mit Jan und Olli - 01.12.2022
+- Folge 610 / 460: Wir sind wieder da! - 14.01.2023
+- Folge 611 / 461: BOOMERCRINGE #3 - 17.01.2023
+- Folge 612 / 462: Pudding in Dubai - 21.01.2023
+- Folge 613 / 463: BOOMERCRINGE #4 - 24.01.2023
+- Folge 614 / 464: Der Junge mit den sauberen Zähnen - 28.01.2023
+- Folge 615 / 465: BOOMERCRINGE #5 - 31.01.2023
+- Folge 616 / 466: Der Gyros schmilzt - 04.02.2023
+- Folge 617 / 467: BOOMERCRINGE #6 - 07.02.2023
+- Folge 618 / 468: Never meet your local heroes - 11.02.2023
+- Folge 619 / 469: BOOMERCRINGE #7 - 14.02.2023
+- Folge 620 / 470: Wir sind Rotzepfütze! - 18.02.2023
+- Folge 621 / 471: BOOMERCRINGE #8 - 21.02.2023
+- Folge 622 / 472: Spontan in den Oman - 25.02.2023
+- Folge 623 / 473: BOOMERCRINGE #9 - 28.02.2023
+- Folge 624 / 474: Cheese Edition - 04.03.2023
+- Folge 625 / 475: BOOMERCRINGE #10 - 07.03.2023
+- Folge 626 / 476: Der Asi und der Schwabe - 11.03.2023
+- Folge 627 / 477: BOOMERCRINGE #11 - 14.03.2023
+- Folge 628 / 478: Die nächste Woche wird gut - 18.03.2023
+- Folge 629 / 479: BOOMERCRINGE #12 - 21.03.2023
+- Folge 630 / 480: Öffentlicher Dreier - 25.03.2023
+- Folge 631 / 481: BOOMERCRINGE #13 - 28.03.2023
+- Folge 632 / 482: Neues aus dem Werkstattkeller - 01.04.2023
+- Folge 633 / 483: BOOMERCRINGE #14 - 04.04.2023
+- Folge 634 / 484: Great News for Great People - 08.04.2023
+- Folge 635 / 485: BOOMERCRINGE #15 - 11.04.2023
+- Folge 636 / 486: Raus aus der Gun Lover Bubble! - 15.04.2023
+- Folge 637 / 487: BOOMERCRINGE #16 - 18.04.2023
+- Folge 638 / 488: Medienklüngel aus dem Schneewittchensarg - 22.04.2023
+- Folge 639 / 489: BOOMERCRINGE #17 - 25.04.2023
+- Folge 640 / 490: Die Sieben Spindler - 29.04.2023
+- Folge 641 / 491: BOOMERCRINGE #18 - 02.05.2023
+- Folge 642 / 492: Technikfail - 06.05.2023
+- Folge 643 / 493: BIG SORRY! (Nach Charlie ist Schluss)  - 08.05.2023
+- Folge 644 / 494: BOOMERCRINGE #19 - 09.05.2023
+- Folge 645 / 495: Notiz an uns selber - 14.05.2023
+- Folge 646 / 496: BOOMERCRINGE #20 - 16.05.2023
+- Folge 647 / 497: Mit der Spitze zuerst - 20.05.2023
+- Folge 648 / 498: BOOMERCRINGE #21 - 23.05.2023
+- Folge 649 / 499: Mallorquinischer Baumkuchen - 27.05.2023
+- Folge 650 / 500: BOOMERCRINGE #22 - 30.05.2023
+- Folge 651 / 501: Erbse trifft Hafer - 03.06.2023
+- Folge 652 / 502: BOOMERCRINGE #23 - 06.06.2023
+- Folge 653 / 503: Ich muss aufräumen, bevor ich sterbe! - 10.06.2023
+- Folge 654 / 504: BOOMERCRINGE #24 - 13.06.2023
+- Folge 655 / 505: Katzengold zu Schießmichtot - 17.06.2023
+- Folge 656 / 506: BOOMERCRINGE #25 - 20.06.2023
+- Folge 657 / 507: Eine Seele in zwei Körpern - 24.06.2023
+- Folge 658 / 508: Best of Fest &amp; Flauschig - Tiere, die‘s geschafft haben - 27.06.2023
+- Folge 659 / 509: Die wirklich letzte - Folge vor der Sommerpause - 01.07.2023
+- Folge 660 / 510: Best of Fest &amp; Flauschig - Die Großen Fünf - 08.07.2023
+- Folge 661 / 511: Fest &amp; Flauschig Ferienprogramm - Aufräumen in Stralsund - 15.07.2023
+- Folge 662 / 512: Fest &amp; Flauschig Ferienprogramm - Nachsitzen in Sachen Pearl Jam - 22.07.2023
+- Folge 663 / 513: Fest &amp; Flauschig Ferienprogramm - Liebes Tagebuch  - 29.07.2023
+- Folge 664 / 514: Fest &amp; Flauschig Ferienprogramm - Raus aus dem Internet - 05.08.2023
+- Folge 665 / 515: Fest &amp; Flauschig Ferienprogramm - Der Erfinder der Socke - 12.08.2023
+- Folge 666 / 516: Fest &amp; Flauschig Ferienprogramm - Dornen im Herzen - 19.08.2023
+- Folge 667 / 517: Rattenschwanz an Asi-Freunden - 26.08.2023
+- Folge 668 / 518: BOOMERCRINGE #35 - 29.08.2023
+- Folge 669 / 519: Curly Top Fader Taper Cut - 02.09.2023
+- Folge 670 / 520: BOOMERCRINGE #36 - 05.09.2023
+- Folge 671 / 521: Goethe war sloppy - 09.09.2023
+- Folge 672 / 522: BOOMERCRINGE #37 - 12.09.2023
+- Folge 673 / 523: Sauna im Gemeinschaftskeller - 16.09.2023
+- Folge 674 / 524: BOOMERCRINGE #38 - 19.09.2023
+- Folge 675 / 525: Neues von der Teppanyaki-Platte - 23.09.2023
+- Folge 676 / 526: BOOMERCRINGE #39 - 26.09.2023
+- Folge 677 / 527: Miese Ratten in New York - 30.09.2023
+- Folge 678 / 528: BOOMERCRINGE #40 - 03.10.2023
+- Folge 679 / 529: Die Fleischhand von M. K. - 07.10.2023
+- Folge 680 / 530: BOOMERCRINGE #41 - 10.10.2023
+- Folge 681 / 531: Ich bin ja ne Privatperson - 14.10.2023
+- Folge 682 / 532: BOOMERCRINGE #42 - 17.10.2023
+- Folge 683 / 533: Zumt und Zicker - 21.10.2023
+- Folge 684 / 534: BOOMERCRINGE #43 - 24.10.2023
+- Folge 685 / 535: Vor dem Mikrofon sind alle gleich - 28.10.2023
+- Folge 686 / 536: BOOMERCRINGE #44 - 31.10.2023
+- Folge 687 / 537: Drei Gläser voller Schrauben - 04.11.2023
+- Folge 688 / 538: BOOMERCRINGE #45 - 07.11.2023
+- Folge 689 / 539: Forelle ist mein Fisch - 11.11.2023
+- Folge 690 / 540: BOOMERCRINGE #46 - 14.11.2023
+- Folge 691 / 541: Die Verlorenen Kinder von ‚Wetten, dass…?’ - 18.11.2023
