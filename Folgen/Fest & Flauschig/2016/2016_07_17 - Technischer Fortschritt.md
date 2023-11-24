@@ -1,8 +1,16 @@
 - Dauer: :1:21:56
 - Titelerklärung: ab 5:10 
 - Folge beginnt mit brandneuem Intro
-- Olli hat sich direkt eine Pizza warmgemacht und Jan spricht von Pokemon Go
+- Olli hat sich direkt eine Pizza (mit Pilzen und Schinken) warmgemacht und Jan spricht von Pokemon Go
 - Großes Gespräch über Pokemon Go, Leisure Suit Larry, Wolfenstein und weitere
 - Olli erzählt vom seinem Urlaub in Chicago und gibt Einblick hinter die Kulissen bei Spotify
 - Gespräche über die EM, Cristiano Ronaldo und SPIEGEL-Eilmeldungen
-- Weiter: 14:59 
+- Fanpost zum Thema "Unterscheidung zwischen Maschinengewehr und -pistole"
+- Ollis Sommergetränk: Capri-Eis im Smoothiemixer mit Flasche Sekt
+- Jan spricht über echte und künstliche Vanille
+- *Boris Blocksberg Ketamin Einspieler*
+- Beide haben sich ein Stück vom Zahn abgebrochen (Jan früher schon mit Inlineskatern)
+- Olli redet über rechte und linke Politikbewegungen (insb. "Identitäre Bewegung")
+- Jan hat im März 2016 begonnen, Leute auf Twitter zu blockieren (500 Leute in der Blockliste)
+- Jan erzählt Auto-Geschichte von seinem Vater, wie er bemerkt hat, dass am Tacho rumgeschraubt wurde
+- Weiter: 35:18 
