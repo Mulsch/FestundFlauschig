@@ -1,6 +1,6 @@
-Einspieler | Debüt | Verlinkung
--------|------|-----
-Til Schweiger - "Ich betrachte mich selbst als Intelektueller"|23.09.2012|[^1]
+Einspieler | Debüt | 
+-------|------|
+Til Schweiger - "Ich betrachte mich selbst als Intelektueller"|23.09.2012
 Westernhagen - "Habt ihr alle genug zu saufen?" |09.09.2012
 Kinder-Yoga-Café  | 09.12.2012
 Westernhagen - "Ich will, dass eine Menge gebumst wird" | 03.02.2013
@@ -26,4 +26,4 @@ Jenny Elvers Interview | 26.06.2016
 "Schenk ein das Ding" | 03.07.2016
 Boris Blocksberg auf Ketamin | 17.07.2016
 Louis de Funès: "Nein, Doch, Ohhh!" | 17.07.2016
-[^1]: https://www.youtube.com/watch?v=uglV4X3hhwo
+Volvic Juicy | 24.07.2016
