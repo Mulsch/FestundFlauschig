@@ -40,7 +40,9 @@
   - *Olli: Gut zum Autofahren*
 - 17.07.2016: Sophie Hunger - Die Ganze Welt
 - 17.07.2016: The Decemberists - Make You Better
-  - *Hat Olli live in Chicago gesehen* 
+  - *Hat Olli live in Chicago gesehen*
+- 24.07.2016: Diagrams - Gentle Morning Song
+- 
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
