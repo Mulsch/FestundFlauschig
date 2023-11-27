@@ -19,7 +19,8 @@
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
 - 15.05.2016: Scott Walker - Jackie
-- 22.05.2016: Justin Currie - The Fight to be Human (*einer von Ollis Lieblingssongs*)
+- 22.05.2016: Justin Currie - The Fight to be Human
+  - *Einer von Ollis Lieblingssongs*
 - 22.05.2016: Walker Brothers - Make it easy on youself 
 - 22.05.2016: Klaus Hoffmann - Das alte Lied
 - 29.05.2016: Whipping Boy - We don't need nobody else
@@ -38,6 +39,8 @@
 - 10.07.2016: I Got You On Tape - Spinning For The Cause
   - *Olli: Gut zum Autofahren*
 - 17.07.2016: Sophie Hunger - Die Ganze Welt
+- 17.07.2016: The Decemberists - Make You Better
+  - *Hat Olli live in Chicago gesehen* 
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
