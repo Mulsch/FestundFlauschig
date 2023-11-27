@@ -15,6 +15,7 @@
 - 10.07.2016: Hannes Wader - Die Internationale
 - 10.07.2016: Charles Aznavour - Du läßt dich gehen
 - 17.07.2016: Blur - Tender
+- 24.07.2016: Torre Florim - Firestarter
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
