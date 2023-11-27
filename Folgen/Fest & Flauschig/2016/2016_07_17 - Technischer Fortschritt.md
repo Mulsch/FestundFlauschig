@@ -13,4 +13,34 @@
 - Olli redet über rechte und linke Politikbewegungen (insb. "Identitäre Bewegung")
 - Jan hat im März 2016 begonnen, Leute auf Twitter zu blockieren (500 Leute in der Blockliste)
 - Jan erzählt Auto-Geschichte von seinem Vater, wie er bemerkt hat, dass am Tacho rumgeschraubt wurde
-- Weiter: 35:18 
+- Jan bespricht das Thema "Was hält unser Land zusammen?" und Patriotismus während Fußballmeisterschaften
+- Jan Brüllberger spricht kurz
+- Olli lässt sich über Hipster-Restaurants und OASIS-Konzerte aus
+- *Louis de Funès (Nein, Doch, Ohh!) Einspieler*
+- Jan hat nichts für Louis de Funès, Bud Spencer oder den rosarothen Panther über (Wird Olli nicht drüber fertig)
+- Jan beglückt Günther Jauch zum Geburtstag und trauert um Miriam Pielhau
+- Olli erzählt von seinem neuen Kartoffel-Schäl-Trick (mit der Bohrmaschine) und Jan empfiehlt den besten Schäler [^1]
+- Gespräch über iPhone-Kopfhörer (Olli glaubt, dass er sich irgendwann nachts mit dem iPhone Kabel strangulieren wird)
+- Jan erzählt, dass er sich mit einem bekannten Polizisten über einen Mordfall unterhielt und folgender Ausdruck fiel: "Ein Schuss - durch die Swatch, ins Herz!"
+- Jan hat sich einen Staubsaugroboter gekauft und ist begeistert, Olli ist nicht überzeugt
+- Olli hat sich in den USA einen BB8-Roboter gekauft und ist ein großer Fan
+- Jan hat Ärger bekommen, weil er im Bekanntenkreis Game of Thrones empfohlen hat (Lieblingscharakter ist gestorben)
+- Olli hat Peter Gabriel und Sting in Chicago gesehen und spricht über den "Mutti Dance"
+- Olli möchte nicht, dass Jan gleichzeitig mit ihm ein Lied in die Playlist tut und wünscht sich mehr Kontrolle über die Musik
+- *Ich nehme diesen Preis nicht an Einspieler*
+- Gespräch über Game of Thrones und Westworld (Zu dem Zeitpunkt noch nicht erschienen)
+- Olli stellt die (nicht ganz unbegründete) These auf, dass Leute mit abgeklebter Laptop-Kamera "sich davor oft einen knüppeln"
+- Olli redet über die Geste im Restaurant, wenn der Kellner nach dem Essen fragt
+- Jan: "Boris Johnson wird britischer Außenminister", macht sich anschließend über dessen Aussehen lustig
+- Olli war beim Essen seines Managements (Klaas und Nora Tschirner waren auch da)
+- Kurzes Gespräch über die anstehenden US-Wahlen und deutschen HipHop (Fler, Fanta4)
+- Olli redet über die "Boskops" und deren "Pisse-Eimer" im Aufnahmestudio
+- Olli empfiehlt das Musikvideo "Belgrad" von Stephan Mahler (*Nicht mehr auf YouTube zu finden, Anm. d. Red.*)
+- Gespräche über Xatar, Casper, Marteria
+- Olli fragt zum Abschluss, wann Jan das letzte Mal Wurst auf die Hand beim Fleischer bekommen hat
+- Gespräch über einen getöteten spanischen Torrero [^2] und Kükenschreddern [^3]
+- Jan hat eine Kiste Anjola (Wollte eigentlich Olli haben, s. Folge vom 15.05.2016), eine Kiste Sahne-Muhmuhs (s. Folge vom 26.01.2015) und eine Handpuppe geschenkt bekommen und Olli war beim Punk-Konzert, da "kennt ihn zum Glück keiner"
+
+[^1]: https://www.kochform.de/Lurch-Sparschaeler-Universal.htm?affiliate=BingShopping&msclkid=a54bdd8bc01e1d060bfcb8ef60e1a5d8
+[^2]: https://www.blick.ch/ausland/herz-durchstochen-stier-toetet-torero-id5245830.html
+[^3]: https://www.dw.com/de/t%C3%B6ten-m%C3%A4nnlicher-k%C3%BCken-mit-tierschutzgesetz-vereinbar/a-17015304
