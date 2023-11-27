@@ -19,3 +19,5 @@ _**Filme:**_
 
 _**Verschiedenes:**_
 - Newsletter "Vollmond Info" (Olli, F&F, 06.07.2016, 18:30)
+- Sparschäler "Lurch Universal" (Jan, F&F, 17.07.2016, 46:30) - [Link](https://www.kochform.de/Lurch-Sparschaeler-Universal.htm?affiliate=BingShopping&msclkid=23d4ca0df342183080d2af69514d2f95)
+
