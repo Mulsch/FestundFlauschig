@@ -14,6 +14,7 @@
 - 06.07.2016: Dota Kehr - Rennrad
 - 10.07.2016: Hannes Wader - Die Internationale
 - 10.07.2016: Charles Aznavour - Du läßt dich gehen
+- 17.07.2016: Blur - Tender
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
