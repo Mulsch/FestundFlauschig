@@ -10,7 +10,7 @@ _**Dokumentationen:**_
 - "Ego" mit Horst Janssen (Olli, F&F, 19.06.2016, 19:30)
 - "Talking Funny" (Olli, F&F, 04.07.2016, 1:10:30)
 - "Wecker Wader Vaterland" (Olli, F&F, 10.07.2016, 1:00:30)
-- Wolfgang Beltracchi - "Der Meisterfälscher" (Olli, F&F, 24.07.2016) 15:00 + 10.07.2016
+- Wolfgang Beltracchi - "Der Meisterfälscher" (Olli, F&F, 24.07.2016, 15:00 + 10.07.2016)
 
 _**Serien:**_
 - "Vinyl" (Olli, F&F, 12.06.2016, 1:27:00)
