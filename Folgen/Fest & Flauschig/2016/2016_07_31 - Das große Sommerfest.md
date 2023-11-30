@@ -1,0 +1,5 @@
+- Dauer: 1:53:59
+- Titelerklärung: *selbsterklärend*
+- Sendung geht ohne Intro los
+- Olli und Jan sitzen beide im Studio von Sven Meyer in Hamburg und kündigen Gäste an
+- 2:57 
