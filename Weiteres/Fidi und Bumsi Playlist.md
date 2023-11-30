@@ -43,7 +43,7 @@
 - 17.07.2016: The Decemberists - Make You Better
   - *Hat Olli live in Chicago gesehen*
 - 24.07.2016: Diagrams - Gentle Morning Song
-- 
+- 24.07.2016: Donnie Hathaway - A Song For You
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
