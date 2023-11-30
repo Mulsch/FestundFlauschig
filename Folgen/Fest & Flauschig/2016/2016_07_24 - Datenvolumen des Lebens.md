@@ -25,7 +25,13 @@
  - Olli erzählt seine kleine Liebesgeschichte mit der Frau, die ihre Oma mit dem Rollstuhl geschoben hat
  - Jan wollte schwimmen gehen, aber es war Damenbadetag und erzählt von Hamburg
  - Seriengespräche (Stranger Things, AHS)
- - Weiter: 57:30 
+ - Jan spricht über den DAX und Pokemon Go (Beide haben eine eindeutige Anti-Haltung)
+ - Olli spricht über die Band "Steel Panther" und deren Umgang mit geklauter Musik
+ - Jan empfiehlt "Nick Tschiller: Off Duty" und redet vom Café Keese
+ - Beide unterhalten sich über die besten Läden in Hamburg und Olli erzählt eine Geschichte, wie er mal fast als Kellner gearbeitet hätte
+ - Jan würde mit Olli gerne mit Segway durch Berlin fahren, Olli ist nicht begeistert, findet aber Bier-Bikes schlimmer
+ - Jan liest zum Abschluss aus seinem Poesie-Album vor
+ - Olli schaltet sich nach Abschluss der Sendung noch einmal kurz ein und sucht sich einen letzten Song aus
 
 
 
