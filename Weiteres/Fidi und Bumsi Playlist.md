@@ -16,7 +16,7 @@
 - 10.07.2016: Charles Aznavour - Du läßt dich gehen
 - 17.07.2016: Blur - Tender
 - 24.07.2016: Torre Florim - Firestarter
-- 31.07.2016: Mia. - BIste Mode
+- 31.07.2016: Mia. - Biste Mode
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
