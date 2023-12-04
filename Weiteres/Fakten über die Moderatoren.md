@@ -13,6 +13,7 @@
 - Kann keine Äpfel und Weingummis essen, ohne dass ihm die Zähne weh tun (S&S, 31.01.2016, 06:00)
 - Hat einen Segelschein (S&S, 06.03.2016, 35:30)
 - Kann sich an Betrunke anpassen ohne selbst betrunken zu sein (F&F, 22.05.2016, 45:00)
+- Besitzt Cowboy-Stiefel von Loriot (F&F, 31.07.2016. 15:00)
 
 **Olli Schulz:**
 - Nicht beschnitten (S&S, 25.03.2012, 26:00)
