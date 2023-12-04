@@ -16,6 +16,7 @@
 - 10.07.2016: Charles Aznavour - Du läßt dich gehen
 - 17.07.2016: Blur - Tender
 - 24.07.2016: Torre Florim - Firestarter
+- 31.07.2016: Mia. - BIste Mode
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -43,7 +44,7 @@
 - 17.07.2016: The Decemberists - Make You Better
   - *Hat Olli live in Chicago gesehen*
 - 24.07.2016: Diagrams - Gentle Morning Song
-- 24.07.2016: Donnie Hathaway - A Song For You
+- 24.07.2016: Donny Hathaway - A Song For You
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
