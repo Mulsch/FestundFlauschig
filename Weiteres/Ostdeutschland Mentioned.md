@@ -6,7 +6,7 @@
 - Jan entschuldigt sich bei allen Magdeburgern, sagt aber, dass er die Stadt nicht mag (S&S, 16.06.2013, 1:05:00)
 - Jan war auf seiner Tour in Magdeburg (S&S, 30.03.2014, 1:02:00)
 - Sachsen-Anhalt auf Platz 5 der großen Fünf (S&S, 15.06.2014, 44:00)
-- Olli ist mit seinem Kumpel in ein Hotel in Magdeburg gefahren (S&S, 05.10.2014, 08:30)
+- Olli ist mit seinem Kumpel zu einem Hotel in Magdeburg gefahren (S&S, 05.10.2014, 08:30)
 - Olli erwähnt Magdeburg bei seinen Aufzählungen ostdeutscher Städte (S&S, 09.11.2014, 26:00)
 - In Folge 118 (vom 30.08.2015) wäre fast ein „Die Großen Fünf Ostdeutschen Kleinstädte“ entstanden
 - Jan sagt in Folge 118 „Halberstadt“ (ca. 1:18:30)
