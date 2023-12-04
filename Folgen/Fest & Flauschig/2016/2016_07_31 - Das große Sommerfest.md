@@ -18,7 +18,7 @@
 - Olli spricht über Robert Gerner und Otto
 - Heinz Strunk hält einen langen Monolog und redet mit Jan über Musicals
 - Heinz Strunkt schenkt Olli den Begriff "Gläserne Milf"
-- Alle unterhalten sich über dumme Floskeln (Großes Tennis, das Netz tobt, Nutznießer)
+- Alle unterhalten sich über dumme Floskeln ("Großes Tennis", "das Netz tobt", "Nutznießer")
 - Olli stellt sein "4 Wochen Olli Schulz Programm" vor und spricht erneut über sein Hundebuch
 - Olli und Jan wiederholen eine "Die Großen Fünf"-Kategorie
 - Jan erzählt, dass dem Sänger von Soft Cell Pferdesperma ausgepumpt wurde
@@ -30,7 +30,8 @@
 - Alle drei werten den Übergang vom ÖRR zu Spotify und das Erdogan-Gedicht aus
 - Ina Müller bewertet Jans Füße
 - Jan erzählt, dass er Ollis Spotify Account bezahlt
-- 
+- Olli erzählt von seinen Zukunftsplänen
+- Ina erzählt von Gästen ihrer Sendung und spricht über ihr Double
 
 [^1]: https://www.kreiszeitung.de/lokales/bremen/bremen-messerstecherei-nach-streit-pokmon-taeter-polizeilich-bekannt-6612606.html
 [^2]: https://web.archive.org/web/20180126012534/https://www.ndr.de/kultur/geschichte/chronologie/koehlbrandbruecke154_page-2.html
