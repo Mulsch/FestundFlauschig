@@ -20,6 +20,16 @@
 - Heinz Strunkt schenkt Olli den Begriff "Gläserne Milf"
 - Alle unterhalten sich über dumme Floskeln (Großes Tennis, das Netz tobt, Nutznießer)
 - Olli stellt sein "4 Wochen Olli Schulz Programm" vor und spricht erneut über sein Hundebuch
+- Olli und Jan wiederholen eine "Die Großen Fünf"-Kategorie
+- Jan erzählt, dass dem Sänger von Soft Cell Pferdesperma ausgepumpt wurde
+- Gespräch über Joy Fleming und ihren wahren Namen
+- Olli erzählt Backstage-Story von Michelle
+- Heinz Strunk erzählt, wie er Joko beim Promi Dinner gesehen hat
+- Zweiter Gast: Ina Müller
+- Ina Müller hat noch keine Ahnung, wie Spotify funktioniert
+- Alle drei werten den Übergang vom ÖRR zu Spotify und das Erdogan-Gedicht aus
+- Ina Müller bewertet Jans Füße
+- Jan erzählt, dass er Ollis Spotify Account bezahlt
 - 
 
 [^1]: https://www.kreiszeitung.de/lokales/bremen/bremen-messerstecherei-nach-streit-pokmon-taeter-polizeilich-bekannt-6612606.html
