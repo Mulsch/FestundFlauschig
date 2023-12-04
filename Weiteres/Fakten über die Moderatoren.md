@@ -24,7 +24,7 @@
 - Hasst Clowns (S&S, 04.05.2014, 1:13:30)
 - hat keine Geschwister (S&S, 21.12.2014, 7:30)
 - Kommt aus Hamburg Stellingen (S&S, 29.11.2015, 27:00)
-- Hat noch Freunde, die nicht wissen, dass er Musiker ist (S&S, 28.02.2016, 25:50)
+- Hat noch Freunde, die nicht wissen, dass er Musiker ist (S&S, 28.02.2016, 25:50) (F&F, 31.07.2016, 25:45) 
 - Mag kein Bier (F&F, 22.05.2016, 5:00)
 - Hat schonmal Nacktbilder verschickt (F&F, 05.06.2015, 1:00:00)
 - Ihm wurde bereits zweimal das Konto gepfändet (F&F, 12.06.2015, 7:30)
