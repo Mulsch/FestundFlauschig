@@ -21,7 +21,7 @@
 - Alle unterhalten sich über dumme Floskeln ("Großes Tennis", "das Netz tobt", "Nutznießer")
 - Olli stellt sein "4 Wochen Olli Schulz Programm" vor und spricht erneut über sein Hundebuch
 - Olli und Jan wiederholen eine "Die Großen Fünf"-Kategorie
-- Jan erzählt, dass dem Sänger von Soft Cell Pferdesperma ausgepumpt wurde
+- Jan erzählt, dass dem Sänger von Soft Cell Pferdesperma ausgepumpt wurde[^3]
 - Gespräch über Joy Fleming und ihren wahren Namen
 - Olli erzählt Backstage-Story von Michelle
 - Heinz Strunk erzählt, wie er Joko beim Promi Dinner gesehen hat
@@ -35,3 +35,4 @@
 
 [^1]: https://www.kreiszeitung.de/lokales/bremen/bremen-messerstecherei-nach-streit-pokmon-taeter-polizeilich-bekannt-6612606.html
 [^2]: https://web.archive.org/web/20180126012534/https://www.ndr.de/kultur/geschichte/chronologie/koehlbrandbruecke154_page-2.html
+[^3]: https://www.snopes.com/fact-check/rock-star-stomach-pump/
