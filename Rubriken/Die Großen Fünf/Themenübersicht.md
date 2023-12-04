@@ -126,6 +126,7 @@
 - Nervige Partyhits (08.02.2015)
 - Ärzte-Lieder (12.04.2015)
 - Konzertvenues (06.12.2015)
+- Scheißsongs (24.07.2016, 31.07.2016)
   
 ***Sport***
 - Dumme Sportarten (09.06.2013)
