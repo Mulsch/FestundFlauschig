@@ -10,3 +10,4 @@
 - Olli erwähnt Magdeburg bei seinen Aufzählungen ostdeutscher Städte (S&S, 09.11.2014, 26:00)
 - In Folge 118 (vom 30.08.2015) wäre fast ein „Die Großen Fünf Ostdeutschen Kleinstädte“ entstanden
 - Jan sagt in Folge 118 „Halberstadt“ (ca. 1:18:30)
+- Heinz Strunk erzählt von der "Sachsen Anhalt Hit Arena" (F&F, 31.07.2016, 1:09:15) 
