@@ -17,6 +17,7 @@
 - 17.07.2016: Blur - Tender
 - 24.07.2016: Torre Florim - Firestarter
 - 31.07.2016: Mia. - Biste Mode
+- 04.09.2016: Gzuz - CL500
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
