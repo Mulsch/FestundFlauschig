@@ -17,6 +17,7 @@
 - Jan regt sich über Sojalebensmittel auf und versteht den Sinn nicht hinter "Fake-Fleisch"
 - Olli fragt Jan, ob er sich seine eigene Sendung im Nachhinein nochmal ansieht (tut er nicht, nur das Feedback)
 - Gespräch über den aktuellen Shitstorm von Sarah Kuttner [^3]
+- 34:24 
 
 [^1]: https://www.stern.de/kultur/musik/beginner-video--es-war-einmal---auftritte-von-palina--h-p--baxxter--klaas-und-boehmermann-7006272.html
 [^2]: https://www.youtube.com/watch?v=tqYfC1eV568
