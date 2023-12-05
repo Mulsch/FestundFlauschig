@@ -1,5 +1,5 @@
 ***Essen und Trinken***
-- Brotbeläge (17.03.2013)
+- Brotbeläge (17.03.2013), Brot-Aufschnitte (17.01.2016)
 - Raststättensnacks (17.03.2013)
 - Schokoriegel (17.03.2013)
 - Leckereien beim Bäcker (07.04.2013)
@@ -21,7 +21,6 @@
 - No-Gos im kulinarischen Bereich (29.03.2015)
 - Ekelige Gemüsesorten (17.05.2015)
 - Gerichte, die sie gut kochen können (29.11.2015)
-- Brot-Aufschnitte (17.01.2016)
 - Nachspeisen (Nora Tschirner Edition) (24.01.2016)
 - Deutsche Imbiss-Gerichte (15.05.2016)
 - Kuchensorten (29.05.2016)
