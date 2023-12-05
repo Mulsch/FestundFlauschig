@@ -111,7 +111,7 @@
 - Attraktive deutsche Politikerinnen (22.09.2013)
 - Politiker, die Sanft & Sorgfältig hören (03.05.2015)
 
-*Verschiedenes:*
+*Verschiedenes*
 - Deutsche Fleischesser/-innen (16.06.2013)
 - Promiwohnungen, in denen sie Mäuschen spielen wollen (11.08.2013)
 - Freundschaften (01.06.2014)
