@@ -540,3 +540,7 @@
 - Folge 690 / 540: BOOMERCRINGE #46 - 14.11.2023
 - Folge 691 / 541: Die Verlorenen Kinder von ‚Wetten, dass…?’ - 18.11.2023
 - Folge 692 / 542: BOOMERCRINGE #47 - 21.11.2023
+- Folge 693 / 543: Der Private Sale geht weiter - 25.11.2023
+- Folge 694 / 544: BOOMERCRINGE #48 - 28.11.2023
+- Folge 695 / 545: Zinksalbe für die Ohren - 02.12.2023
+- Folge 696 / 546: BOOMERCRINGE #49 - 06.12.2023
