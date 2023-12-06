@@ -47,6 +47,7 @@
 - 24.07.2016: Diagrams - Gentle Morning Song
 - 24.07.2016: Donny Hathaway - A Song For You
 - 31.07.2016: Ina Müller - Mark
+- 04.09.2016: The National - Lemonworld
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
