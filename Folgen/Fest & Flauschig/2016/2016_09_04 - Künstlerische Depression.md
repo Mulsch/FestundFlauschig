@@ -17,8 +17,26 @@
 - Jan regt sich über Sojalebensmittel auf und versteht den Sinn nicht hinter "Fake-Fleisch"
 - Olli fragt Jan, ob er sich seine eigene Sendung im Nachhinein nochmal ansieht (tut er nicht, nur das Feedback)
 - Gespräch über den aktuellen Shitstorm von Sarah Kuttner [^3]
-- 34:24 
+- Olli spricht über Bifi Mike, er hat mal "auf einen Hund geschissen"
+- Jan spricht über Gäste seiner Sendung
+- *Böhmchen und Lollo Einspieler*
+- Olli spricht Jan auf sein dreistündiges Interview mit Rooz an[^4]
+- Gespräche über Fred Perry und Tropicals Islands
+- Jan war wieder im Magic Park Verden (s. Folge vom 12.06.2016) und Olli war zelten
+- Gespräch über Insekten und Spinnen
+- *Vogelspinne Einspieler*
+- Erstes Mal "Trödeltime" in F&F
+- Olli mag Bully und seine Filme / seinen Humor nicht
+- Jan spricht über die WDR-Sendung "70 Jahre Nordrhein-Westpfahlen"
+- Olli redet über NPD Plakate und "Ausländer raus!"
+- Olli sagt Jan plötzlich, dass er ihn liebt
+- Gespräch über Kim Frank (s. Musikfolge ZDF Magazin 2023)
+- Sehr bizarrer Medititationseinspieler für Nichtraucher
+- Beide erfinden die Wortspiele "Boris Backup" und "O. Love"
+- Jan möchte mal wieder tindern und Olli erzählt eine Geschichte vom Sänger von "Die Kassierer"
+- Olli redet über Feedback zum "Mutti Dance" (s. Folge vom 17.07.2016)
 
 [^1]: https://www.stern.de/kultur/musik/beginner-video--es-war-einmal---auftritte-von-palina--h-p--baxxter--klaas-und-boehmermann-7006272.html
 [^2]: https://www.youtube.com/watch?v=tqYfC1eV568
 [^3]: https://www.stern.de/familie/kinder/sarah-kuttner-wettert-bei-facebook-gegen-eltern-7036716.html
+[^4]: https://www.youtube.com/watch?v=A9ZYdon90dg, https://www.youtube.com/watch?v=PLpuE_edXDc&t=0s
