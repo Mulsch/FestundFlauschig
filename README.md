@@ -16,6 +16,6 @@ Den aktuellen Reddit Post zum Repository findet ihr [hier](https://www.reddit.co
 
 Aktueller Fortschritt:  
 Sanft und Sorgfältig: 134/150 (89,33%)  
-Fest und Flauschig: 14/542 (2,58%)  
+Fest und Flauschig: 14/546 (2,56%)  
 
-Gesamt: 148/692 (21,39%)
+Gesamt: 148/696 (21,26%)
