@@ -1,0 +1,16 @@
+- Dauer: 1:15:41
+- Titelerklärung: ab 7:45 
+- Jan begannt die Sendung mit dem Wort "Rhododendren"
+- Olli erzählt, dass Justin Bieber vorübergehend in seiner Nähe wohnt[^1]
+- Jan fragt von einer Hörerin, ob Olli einen Schlaganfall hatte
+- "Lomi Lomi" wird besprochen - Die Massage von Olli und Jan / Die Podcast-Massage
+- Gespräch über Flüchtling-Nazi-Konflinkt in Bautzen[^2]
+- Olli spricht über Jimmy Fallons Interview mit Donald Trump[^3], Olli ist kein Fan von Jimmy Fallon
+- Gespräch über Politik und Rechtsextremismus (Identitäre Bewegung, AfD, Frauke Petry)
+- Jan erzählt von seiner Sendung, Luke Mockridge und spricht nochmal die Sarah Kuttner Geschichte an (s. Folge vom 04.09.2016)
+- Jimmy Fallon und die Moral eines Fernsehmoderators werden besprochen
+- Jan erzählt von seinem Auftritt in der Sendung vom Olaf Schubert, Olli erzählt von seiner Coca Cola Werbung 
+
+[^1]: https://www.bz-berlin.de/archiv-artikel/justin-bieber-baut-sich-einen-bau-in-berlin
+[^2]: https://www.deutschlandfunk.de/nach-gewalt-in-bautzen-alkoholverbot-und-ausgangssperre-100.html
+[^3]: https://www.youtube.com/watch?v=kIGcosb22_Y
