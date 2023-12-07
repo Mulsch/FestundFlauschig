@@ -19,6 +19,7 @@
 - 31.07.2016: Mia. - Biste Mode
 - 04.09.2016: Gzuz - CL500
 - 04.09.2016: Deine Freunde - Deine Mudder
+- 11.09.2016: Tom Waits - Soldier's Things
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
