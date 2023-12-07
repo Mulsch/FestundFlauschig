@@ -52,7 +52,8 @@
 - 04.09.2016: The National - Lemonworld
 - 11.09.2016: Calm Wizardry - Spend the Night with Me
   -*Band von Marco Göllner*
-- 11.09.2016: EPMD - Strictly Business  
+- 11.09.2016: EPMD - Strictly Business
+- 18.09.2016: Luca Sapio, The Dark Shadows - Someone
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
