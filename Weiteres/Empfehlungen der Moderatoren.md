@@ -3,6 +3,7 @@ _**Gesundheit:**_
 
 _**Bücher:**_  
 - "Kind, versprich mir, dass du dich erschießt" (Olli, F&F, 05.06.2016, 30:30)
+- "Wann wird es endlich wieder so wie es nie war" von Joachim Meyerhoff (Olli, F&F, 14.09.2016, 1:01:05)
 
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
