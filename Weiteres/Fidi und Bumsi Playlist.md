@@ -49,6 +49,8 @@
 - 24.07.2016: Donny Hathaway - A Song For You
 - 31.07.2016: Ina Müller - Mark
 - 04.09.2016: The National - Lemonworld
+- 11.09.2016: Calm Wizardry - Spend the Night with Me
+  -*Band von Marco Göllner*
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
