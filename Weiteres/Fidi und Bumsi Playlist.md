@@ -52,7 +52,7 @@
 - 31.07.2016: Ina Müller - Mark
 - 04.09.2016: The National - Lemonworld
 - 11.09.2016: Calm Wizardry - Spend the Night with Me
-  -*Band von Marco Göllner*  
+  - *Band von Marco Göllner*  
 - 11.09.2016: EPMD - Strictly Business
 - 18.09.2016: Luca Sapio, The Dark Shadows - Someone
 
