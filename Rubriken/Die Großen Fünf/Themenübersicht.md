@@ -36,6 +36,7 @@
 - Figuren aus Zeichentrickserien (16.11.2014)
 - Entenhausen-Charaktere (04.10.2015)
 - Kinderserien (19.06.2016)
+- Seriencharaktere (18.09.2016)
 
 *Filme*
 - Deutsche Überbewerte Filme (28.04.2013)
