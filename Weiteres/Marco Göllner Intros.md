@@ -1,3 +1,4 @@
 - Folge vom 04.09.2016: Der Mann und die drei Frauen (sehr kurz)
 - Folge vom 11.09.2016: Frau Romengs Ehemänner
 - Folge vom 18.09.2016: Yogameister Malenski verknotet seine Schülerin und eröffnet ein Eiscafé
+- Folge vom 25.09.2016: Das kleine Zaubergenie
