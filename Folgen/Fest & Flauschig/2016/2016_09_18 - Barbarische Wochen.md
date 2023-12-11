@@ -12,7 +12,7 @@
 - Jan erzählt von seinem Auftritt in der Sendung vom Olaf Schubert, Olli erzählt von seiner Coca Cola Werbung
 - Olli erzählt von Kirmes-Fabian[^4] und 
 - Jan spricht über John Cleese, es folgt ein ausführliches über den Eintritt Christopher Lauers ("unser kleiner Racker") in die SPD und die Abgeordnetenwahl in Berlin
-- Jan spielt seit langem wieder mit dem Gedanken, in die Politik zu gehen
+- Jan spielt seit langem wieder mit dem Gedanken, ob er in die Politik gehen sollte ("Ich trete niemals in eine Partei ein")
 - Beide sprechen über das Übereinanderschlagen der Beine bei Männern
 - Jan spricht über den "Safe Place" beim Fangenspielen und dessen unterschiedliche Namen in Deutschland
 - Olli erzählt von dem Geburtstag seiner Tochter und einer Schatzsuche mit Darstellern des Hamburg Dungeons
