@@ -58,7 +58,8 @@
 - 18.09.2016: Luca Sapio, The Dark Shadows - Someone
 - 18.09.2016: Kings of Leon - Waste A Moment
 - 25.09.2016: Edward Sharpe & The Magnetic Zeros - 40 Day Dream
-  - *Einer von Ollis Lieblingssongs* 
+  - *Einer von Ollis Lieblingssongs*
+- 25.09.2016: The Notwist - Pick Up The Phone (**Fehlt in der Fidi & Bumsi Liste**)
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
