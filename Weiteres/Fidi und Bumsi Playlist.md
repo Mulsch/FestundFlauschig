@@ -21,6 +21,7 @@
 - 04.09.2016: Deine Freunde - Deine Mudder
 - 11.09.2016: Tom Waits - Soldier's Things
 - 18.09.2016: Die Orsons - Schwung in die Kiste
+- 18.09.2016: Reinhard Mey - Vernunft breitet sich aus über die Bundesrepublik Deutschland
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
