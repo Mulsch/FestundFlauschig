@@ -15,6 +15,11 @@
 - Gespräch über Väter, die mit ihren Söhnen in den Puff gehen und die Serie "Eastbound and Down"
 - Jan spricht erneut über den Plan Songs & Gesprochenes zusammenzuführen
 - Gespräch über Tennis und Angelique Kerber, Jan erzählt von Klaas Heufer-Umlauf's Auftritt in seiner Sendung
+- Jan spricht über "Brangelina", er ist auf der Seite von Angelina Jolie
+- Jan spielt mit Gedanken, sich einen privaten Elektroroller zu kaufen (zum sitzen), Olli hat einen Monat lang keinen Führerschein
+- Jan hat sich eine Sexpuppe als Beifahrerin für seinen Porsche Cayenne bestellt
+- Jan erzählt, dass ihm der Live-Auftritt der letzten Jahre sehr fehlt und er gerne weiterhin jährlich eine "Gala" durchführen würde - es entsteht die Idee des Weihnachtszirkus
+- Jan spricht zum Abschluss von einer 10 m² Wohnung in Berlin Zentrum
 
 [^1]: https://www.welt.de/politik/deutschland/article158356014/Gerwald-Claus-Brunner-Menschenfreund-und-Moerder.html 
 [^2]: https://www.horizont.net/marketing/nachrichten/Aldi-Das-ist-das-TV-Debuet-des-Discount-Riesen-142624
