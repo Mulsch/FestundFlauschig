@@ -23,7 +23,7 @@ _**Filme:**_
 - "Popstar - Never Stop Never Stopping" (Jan, F&F, 04.09.2016, 1:21:00)
 - "Toni Erdmann" (Jan, F&F, 11.09.2016, 34:00)
   
-_**Hörspieler:**_
+_**Hörspiele:**_
 - Marco Göllner: "Fallen" (Olli, F&F, 04.09.2016, 1:17:40)
 
 
