@@ -16,7 +16,7 @@ _**Dokumentationen:**_
 
 _**Serien:**_
 - "Vinyl" (Olli, F&F, 12.06.2016, 1:27:00)
-- "Eastbound an Down" (Olli, F&F, 25.09.2016, 40:45)
+- "Eastbound and Down" (Olli, F&F, 25.09.2016, 40:45)
 
 _**Filme:**_
 - "Das weiße Band" (Olli, F&F, 26.06.2016, 1:22:30)
