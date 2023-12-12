@@ -1,7 +1,5 @@
 **Jan Böhmermann:**
 - Vater war beim Geiseldrama von Gladbeck dabei (ZaH, 25.03.2012, 3:28)
-- Guckt kein Fernsehen seit 15 Jahren (ZaH, 06.05.2012, 37:30)
-- Nicht beschnitten (S&S, 23.09.2012, 26:00)
 - Trägt Kontaktlinsen (S&S, 12.05.2013, 1:20)
 - Hatte einen Hamster namens Speedy (S&S, 29.09.2013, 34:30)
 - War mal im Krankenhaus wegen Bandscheibe (S&S, 16.02.2014, 10:30) und hat sich mit 10 Jahren im Freizeitpark den Arm gebrochen (S&S, F52, 14:00) und den linken Arm beim Fußball angebrochen (S&S, F52, 15:00)
@@ -16,7 +14,6 @@
 - Besitzt Cowboy-Stiefel von Loriot (F&F, 31.07.2016. 15:00)
 
 **Olli Schulz:**
-- Nicht beschnitten (S&S, 25.03.2012, 26:00)
 - Hasst David Bowie (S&S, 20.01.2013, 4:15)
 - Erstes Familienauto war Mazda (S&S, 29.09.2013, 26:00)
 - Hat denselben Steuerberater wie Westernhagen (S&S, 20.10.2013, 14:00)
@@ -30,3 +27,4 @@
 - Ihm wurde bereits zweimal das Konto gepfändet (F&F, 12.06.2015, 7:30)
 - Erstes Konzert: Run DMC (F&F, 12.06.2016, 1:20:00)
 - Hatte früher ein Luftgewehr, "aber nie auf Lebendiges geschossen" (F&F, 06.07.2016, 22:00)
+- Ist zwischen 1991 und 2012 insgesamt mind. 25 mal umgezogen (F&F, 02.10.2016, 1:04:15)
