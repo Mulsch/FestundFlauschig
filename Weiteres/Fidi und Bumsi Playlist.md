@@ -23,6 +23,8 @@
 - 18.09.2016: Die Orsons - Schwung in die Kiste
 - 18.09.2016: Reinhard Mey - Vernunft breitet sich aus über die Bundesrepublik Deutschland
 - 02.10.2016: Jamie Lidell - Multiply
+- 02.10.2016: Right Said Fred - I'm Too Sexy
+- 
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
