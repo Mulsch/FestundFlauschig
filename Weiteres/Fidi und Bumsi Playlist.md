@@ -24,7 +24,7 @@
 - 18.09.2016: Reinhard Mey - Vernunft breitet sich aus über die Bundesrepublik Deutschland
 - 02.10.2016: Jamie Lidell - Multiply
 - 02.10.2016: Right Said Fred - I'm Too Sexy
-- 
+- 09.10.2016: Blumfeld - Wir sind frei
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -65,6 +65,8 @@
 - 25.09.2016: The Notwist - Pick Up The Phone
 - 02.10.2016: Kristofer Aström, Hidden Truck - All Lovers Hell
 - 02.10.2016: The Hold Steady - One For The Cutters (**Fehlt auf der Playlist**)
+- 09.10.2016: Johnny Cash - Ain't No Grave
+- 09.10.2016: Jakob Dylan - Will It Grow
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
