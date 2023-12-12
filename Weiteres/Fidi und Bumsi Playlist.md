@@ -60,6 +60,7 @@
 - 18.09.2016: Kings of Leon - Waste A Moment
 - 25.09.2016: Edward Sharpe & The Magnetic Zeros - 40 Day Dream
   - *Einer von Ollis Lieblingssongs*
+- 02.10.2016: Kristofer Aström, Hidden Truck - All Lovers Hell
 - 25.09.2016: The Notwist - Pick Up The Phone
 
 **Hinzugefügt von Gästen:**
