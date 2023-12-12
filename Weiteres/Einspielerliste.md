@@ -29,6 +29,7 @@ Louis de Funès: "Nein, Doch, Ohhh!"[^11] | 17.07.2016
 Volvic Juicy | 24.07.2016
 Bernd Knauer - Wir sind wie die Vogelspinne[^12] | 04.09.2016
 Bob Dylan Hate | 09.10.2016
+Shi ist Power | 09.10.2016
 
 [^1]: https://www.youtube.com/watch?v=uglV4X3hhwo
 [^2]: https://www.youtube.com/watch?v=FBq33wtJlC8
