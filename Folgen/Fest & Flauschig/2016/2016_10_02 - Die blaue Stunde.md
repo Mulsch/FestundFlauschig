@@ -14,7 +14,11 @@
 - Offenes Gespräch über Geschlechtskrankheiten und Olli erzählt von seiner ersten Erektion
 - Jan liest die Titanic-Kritik vor und beide werten sie aus, Anschlussgespräch über Teleprompter
 - Olli erzählt von Leonard Cohen
-- 1:04:37 
+- Olli ist kein Fan vom Zocken (Zeitverbrennen), Jan freut sich auf Battlefield 1
+- Olli hat Joey Kelly in Hamburg getroffen, dieser will sein Krafttier sein und ihn fit machen
+- SpiegelTV Vorhersage
+- Gespräche über eine geplante Livesendung (Weihnachtszirkus)
+- Jan berichtet erneut von seinem Plan, einen Elektroroller zu kaufen (s. Folge vom 25.09.2016)
 
 [^1]: https://www.youtube.com/watch?v=7VkfsFuYSnI
 [^2]: https://kaput-mag.com/kolumne_de/zimmer-frei/
