@@ -62,8 +62,9 @@
 - 18.09.2016: Kings of Leon - Waste A Moment
 - 25.09.2016: Edward Sharpe & The Magnetic Zeros - 40 Day Dream
   - *Einer von Ollis Lieblingssongs*
-- 02.10.2016: Kristofer Aström, Hidden Truck - All Lovers Hell
 - 25.09.2016: The Notwist - Pick Up The Phone
+- 02.10.2016: Kristofer Aström, Hidden Truck - All Lovers Hell
+- 02.10.2016: The Hold Steady - One For The Cutters (**Fehlt auf der Playlist**)
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
