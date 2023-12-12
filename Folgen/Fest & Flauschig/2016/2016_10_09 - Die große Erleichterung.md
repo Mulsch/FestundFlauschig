@@ -1,0 +1,18 @@
+- Dauer: 1:09:26
+- Titelerklärung: ab 5:00 
+- Olli moderiert von zu Hause, bei Jan wird ein REWE City nebenan gebaut
+- Olli war im Theater
+- Jan ist erleichtert, dass das Erdogan-Gerichtsverfahren gegen ihn eingestellt worden ist
+- Jan spricht ausführlich über den Erdogan-Skandal und gibt interessante Hintergrundinfos
+- Jan erzählt von der Sendung "Duell um die Geld" und seinem Flug
+- Jan spricht über seinen Plan, eine *Wetten,dass..?!*-Sendung zu moderieren
+- Olli spricht über den Podcast "Der talentierte Mr. Vossen"
+- Gespräche über die Titanic, Max Gold, Wolf Schneider und Josef von Westphalen
+- Radio Hamburg hat Ollis Anti-Fitness Programm geklaut
+- Beide nehmen gegenseitig Filme füreinander auf
+- Gespräche über das Soho-House und Micky Beisenherz
+- *Bob Dylan Einspieler*
+- Jan erzählt von der Sendung *Adam und Eva* und dem Promi-Special
+- Gespräch über Ronald Schill
+- Jan spricht über den Krieg in Syrien
+- Weihnachtszirkus wird zum Abschluss konkretisiert
