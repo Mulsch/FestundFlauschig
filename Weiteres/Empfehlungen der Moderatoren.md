@@ -5,6 +5,7 @@ _**Bücher:**_
 - "Kind, versprich mir, dass du dich erschießt" (Olli, F&F, 05.06.2016, 30:30)
 - "Wann wird es endlich wieder so wie es nie war" von Joachim Meyerhoff (Olli, F&F, 14.09.2016, 1:01:05)
 - "Raumpatrouille" von Matthias Brandt (Olli, F&F, 02.10.2016, 1:00:20)
+- "Warum ich Monarchist geworden bin" von Joseph von Westpfahlen (Olli, F&F, 09.10.2016, 33:55)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
