@@ -47,7 +47,7 @@
 - 04.07.2016: Das Bierbeben - Du träumst von alten Zeiten
 - 06.07.2016: J.J. Cale - Where the Sun Don't Shine
 - 10.07.2016: I Got You On Tape - Spinning For The Cause
-  - *Olli: Gut zum Autofahren*
+  - *Gut zum Autofahren*
 - 17.07.2016: Sophie Hunger - Die Ganze Welt
 - 17.07.2016: The Decemberists - Make You Better
   - *Hat Olli live in Chicago gesehen*
@@ -67,7 +67,7 @@
 - 02.10.2016: The Hold Steady - One For The Cutters (**Fehlt auf der Playlist**)
 - 09.10.2016: Johnny Cash - Ain't No Grave
 - 09.10.2016: Jakob Dylan - Will It Grow
-
+  - *Gut zum Autofahren*
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
