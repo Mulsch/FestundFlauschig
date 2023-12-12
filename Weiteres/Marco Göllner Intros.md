@@ -3,3 +3,4 @@
 - Folge vom 18.09.2016: Yogameister Malenski verknotet seine Schülerin und eröffnet ein Eiscafé
 - Folge vom 25.09.2016: Das kleine Zaubergenie
 - Folge vom 02.10.2016: Familie Pummelwurst aus Plauzen paddelt zum Picknick
+- Folge vom 09.10.2016: Die Rothaarige und der Plattenspieler
