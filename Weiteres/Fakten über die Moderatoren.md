@@ -28,3 +28,4 @@
 - Erstes Konzert: Run DMC (F&F, 12.06.2016, 1:20:00)
 - Hatte früher ein Luftgewehr, "aber nie auf Lebendiges geschossen" (F&F, 06.07.2016, 22:00)
 - Ist zwischen 1991 und 2012 insgesamt mind. 25 mal umgezogen (F&F, 02.10.2016, 1:04:15)
+- Hat einen Segelschein (F&F, 02.10.2016, 1:04:45)
