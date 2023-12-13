@@ -30,6 +30,7 @@ _**Filme:**_
 _**Hörspiele:**_
 - Marco Göllner: "Fallen" (Olli, F&F, 04.09.2016, 1:17:40)
 - "Der talentierte Mr. Vossen" (Olli, F&F, 09.10.2016, 30:10)
+- "Edgar Allen Poe" (Olli, F&F, 16.10.2016, 27:45)
 
 
 _**Verschiedenes:**_
