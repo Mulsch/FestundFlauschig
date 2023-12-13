@@ -25,6 +25,7 @@
 - 02.10.2016: Jamie Lidell - Multiply
 - 02.10.2016: Right Said Fred - I'm Too Sexy
 - 09.10.2016: Blumfeld - Wir sind frei
+- 16.10.2016: Monty Python - Galaxy Song
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
