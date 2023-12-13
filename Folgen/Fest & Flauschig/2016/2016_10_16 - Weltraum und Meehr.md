@@ -16,8 +16,7 @@
 - Gespräche übers "Rumfahren" und Katastrophentourismus
 - Olli erzählt, dass er früher Sprengungen gefilmt hat und die Clips in seiner Sendung bei Radio Hamburg vorgespielt hat
 - Gespräch über Klaus & Klaus und den Offenen Kanal Hamburg
-- Jan war in Helmut Schmidts ehemaligem Büro
-- 
+- Jan war in Helmut Schmidts ehemaligem Büro und Olli berichtet von seinem Auftritt bei *3 nach 9*
 
 [^1]: https://en.wikipedia.org/wiki/Cosmos:_A_Spacetime_Odyssey
 [^2]: https://www.dw.com/de/terrorverd%C3%A4chtiger-syrer-al-bakr-begeht-selbstmord-in-der-haft/a-36028309
