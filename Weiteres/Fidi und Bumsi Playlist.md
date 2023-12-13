@@ -26,6 +26,7 @@
 - 02.10.2016: Right Said Fred - I'm Too Sexy
 - 09.10.2016: Blumfeld - Wir sind frei
 - 16.10.2016: Monty Python - Galaxy Song
+- 16.10.2016: David Bowie - Space Oddity
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
