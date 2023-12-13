@@ -12,6 +12,7 @@
 - Hat einen Segelschein (S&S, 06.03.2016, 35:30)
 - Kann sich an Betrunke anpassen ohne selbst betrunken zu sein (F&F, 22.05.2016, 45:00)
 - Besitzt Cowboy-Stiefel von Loriot (F&F, 31.07.2016. 15:00)
+- Ging auf die Schule "Schulzentrum Bördestraße" in Bremen Lesum (F&F, 16.10.2016, 33:35)
 
 **Olli Schulz:**
 - Hasst David Bowie (S&S, 20.01.2013, 4:15)
