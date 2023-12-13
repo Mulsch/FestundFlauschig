@@ -10,8 +10,14 @@
 - Jan und Olli versuchen den Urknall zu erklären
 - Olli erzählt eine Zuggeschichte, bei der ein Vater keine Zeit für seinen Sohn hatte, da er eine Festplatte formatieren musste
 - Olli erzählt von seinem Tag mit Alexander Kluge
-- Jan spricht über den Selbstmord des "Bombenbauers von Chemnitz"[^2]
-- Weiter: 44:30 
+- Jan spricht über den Selbstmord des "Bombenbauers von Chemnitz"[^2] und Hermann Görings Zyankali-Kapseln
+- Olli spricht über seinen Geburtstag und seiner Zeit in München
+- Olli spricht über die Band "Hans Martin Slayer" und Jan erzählt von seinem Elektroroller
+- Gespräche übers "Rumfahren" und Katastrophentourismus
+- Olli erzählt, dass er früher Sprengungen gefilmt hat und die Clips in seiner Sendung bei Radio Hamburg vorgespielt hat
+- Gespräch über Klaus & Klaus und den Offenen Kanal Hamburg
+- Jan war in Helmut Schmidts ehemaligem Büro
+- 
 
 [^1]: https://en.wikipedia.org/wiki/Cosmos:_A_Spacetime_Odyssey
 [^2]: https://www.dw.com/de/terrorverd%C3%A4chtiger-syrer-al-bakr-begeht-selbstmord-in-der-haft/a-36028309
