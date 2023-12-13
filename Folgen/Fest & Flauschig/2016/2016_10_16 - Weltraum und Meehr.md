@@ -16,7 +16,11 @@
 - Gespräche übers "Rumfahren" und Katastrophentourismus
 - Olli erzählt, dass er früher Sprengungen gefilmt hat und die Clips in seiner Sendung bei Radio Hamburg vorgespielt hat
 - Gespräch über Klaus & Klaus und den Offenen Kanal Hamburg
-- Jan war in Helmut Schmidts ehemaligem Büro und Olli berichtet von seinem Auftritt bei *3 nach 9*
+- Jan war in Helmut Schmidts ehemaligem Büro und Olli berichtet von seinem Auftritt bei *3 nach 9*[^3]
+- Olli spricht über Werner Herzog und schlägt neue Sendungskonzepte vor
+- Olli erzählt von einem "Achim" den er in den 90ern in einem Tonstudio getroffen hat und spielt ein Lied von ihm vor
+- Jan beendet die Sendung mit einem Zitat von Sami Slimani
 
 [^1]: https://en.wikipedia.org/wiki/Cosmos:_A_Spacetime_Odyssey
 [^2]: https://www.dw.com/de/terrorverd%C3%A4chtiger-syrer-al-bakr-begeht-selbstmord-in-der-haft/a-36028309
+[^3]: https://www.youtube.com/watch?v=i4cpceTa5RY
