@@ -69,6 +69,7 @@
 - 09.10.2016: Johnny Cash - Ain't No Grave
 - 09.10.2016: Jakob Dylan - Will It Grow
   - *Gut zum Autofahren*
+- 16.10.2016: Patrick Watson - The Great Escape
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
