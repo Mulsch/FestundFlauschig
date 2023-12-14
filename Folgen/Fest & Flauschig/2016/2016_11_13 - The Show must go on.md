@@ -1,0 +1,18 @@
+- Dauer: 1:54:25
+- Titelerklärung: ab 3:20
+- US-Wahlen und die allgemeine geopolitische Lage werden besprochen
+- Olli hat sich Tee mit Jamaika Rum-Candies gemacht
+- Jan spricht von seinem Gespräch mit Christoph Lauer und schlägt begrenzte Amtszeiten für Kanzler:innen vor
+- Olli stellt neue Superhelden vor: "Captain Bacteria" und "Supermelli"
+- Olli erzählt, wie er einer Ratte die Pfote abgeschlagen hat
+- Olli erzählt einen Piratenwitz (41:15)
+- Gespräch über Musikkenntnisse bei Rappern und Musikunterricht für die eigenen Kinder
+- Ollis Dönersuche wird noch einmal hochgeholt (s. Folge vom 30.10.2016) und Gespräch über OASIS-Dokumentation
+- Olli erzählt Geschichte über Gallagher-Brüder, beide werfen sich vor, die Geschichte schon einmal erzählt zu haben (s. Folge vom 05.04.2015 - Olli hat die Geschichte erzählt)
+- Jan kommt am 19.12.2016 nach Berlin und sucht ein Hotel
+- Weihnachtszirkus im Zirkus Roncalli inkl. Spenden wird angekündigt
+- Gespräch über masturbierende Omas
+- *Wir sind eine geile Feiergemeinde Einspieler*
+- Gespräch über den Wahlabend und Volker Pispers
+- Jan erzählt vom Elterntribunal bei der Kindergartenanmeldung
+- Jan spricht zum Abschluss über seinen Elektroller, Olli erzählt von seinem Führerschein
