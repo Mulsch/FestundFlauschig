@@ -77,6 +77,7 @@
 - Träume, die sich beide noch erfüllen wollen (27.09.2015)
 - Kindheitserlebnisse (12.06.2016)
 - Dinge, für die sie keine Zeit haben (02.10.2016)
+- Unangenehme Veranstaltungen (13.11.2016)
 
 ***Printmedien***
 - Frauenzeitschriften (25.08.2013)
