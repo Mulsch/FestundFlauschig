@@ -30,6 +30,7 @@
 - 23.10.2016: Bob Dylan - Ballad of Thin Man
 - 30.10.2016: Maeckes - Gettin' Jiggy with it
 - 06.11.2016: Bernd Begemann, Die Befreiung - Unoptimiert
+- 13.11.2016: Queen - Somebody To Love
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -77,6 +78,8 @@
 - 23.10.2016: A.A. Bondy - A Slow Parade
 - 30.10.2016: Manfred Krug - Wenn's draußen grün wird (**Fehlt auf der Playlist**)
 - 06.11.2016: Spoon - Inside Out
+- 13.11.2016: Neil Young - Rockin' in the Free World (**Fehlt auf der Playlist**)
+- 13.11.2016: Guided By Voices - Hold on Hope
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
