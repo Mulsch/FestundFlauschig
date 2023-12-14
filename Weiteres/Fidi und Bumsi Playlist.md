@@ -71,6 +71,7 @@
 - 09.10.2016: Jakob Dylan - Will It Grow
   - *Gut zum Autofahren*
 - 16.10.2016: Patrick Watson - The Great Escape
+- 23.10.2016: A.A. Bondy - A Slow Parade
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
