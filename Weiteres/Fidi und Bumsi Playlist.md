@@ -28,6 +28,7 @@
 - 16.10.2016: Monty Python - Galaxy Song
 - 16.10.2016: David Bowie - Space Oddity
 - 23.10.2016: Bob Dylan - Ballad of Thin Man
+- 30.10.2016: Maeckes - Gettin' Jiggy with it
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
