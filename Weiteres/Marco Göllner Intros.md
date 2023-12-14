@@ -9,3 +9,4 @@
 - Folge vom 30.10.2016: Gedicht von der einsamen Gerlinde
 - Folge vom 06.11.2016: Der kleine Penis
 - Folge vom 13.11.2016: Liebesbrief an Europa
+- Folge vom 20.11.2016: Wortspiele mit dem Nervenkostüm
