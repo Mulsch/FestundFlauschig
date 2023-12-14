@@ -6,4 +6,8 @@
 - Jan liest seine GEMA-Abrechnung vor (322,23€)
 - Manfred Krugs Tod wird besprochen und sehr humoristisch ausgewertet
 - *Vogelspinnen Einspieler*
-- Weiter: 23:03 
+- Gespräch über Pietro & Sarah
+- Erster Weihnachtszirkus wird besprochen
+- Seriengespräche: Black Mirror, Silicon Valley 
+- Olli erzählt von seiner Facebook-Dönersuche
+- Abschlussgespräch über Zahnbehandlungen und Olli erfindet weitere Superhelden
