@@ -1,5 +1,5 @@
 - Dauer: 1:09:54
-- Titelerklärung:
+- Titelerklärung: ab 16:45
 - Lachflash wegen Manfred Krug wird direkt zu Beginn noch einmal besprochen
 - Jan spricht über seine und Ollis atomare Verbindung
 - Jan hat sich im Kino *Dr. Strange* angeguckt, war positiv überrascht
