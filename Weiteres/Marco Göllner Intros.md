@@ -8,3 +8,4 @@
 - Folge vom 23.10.2016: Das Rührei-Kleid
 - Folge vom 30.10.2016: Gedicht von der einsamen Gerlinde
 - Folge vom 06.11.2016: Der kleine Penis
+- Folge vom 13.11.2016: Liebesbrief an Europa
