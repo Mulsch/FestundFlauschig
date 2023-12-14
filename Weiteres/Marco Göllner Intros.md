@@ -6,3 +6,4 @@
 - Folge vom 09.10.2016: Die Rothaarige und der Plattenspieler
 - Folge vom 16.10.2016: Marc-Oliver beim Chinesischen All-You-Can-Eat Buffet
 - Folge vom 23.10.2016: Das Rührei-Kleid
+- Folge vom 30.10.2016: Gedicht von der einsamen Gerlinde
