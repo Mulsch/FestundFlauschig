@@ -1,4 +1,4 @@
-- Folge vom 04.09.2016: Der Mann und die drei Frauen (sehr kurz)
+- Folge vom 04.09.2016: Der Mann und die drei Frauen
 - Folge vom 11.09.2016: Frau Romengs Ehemänner
 - Folge vom 18.09.2016: Yogameister Malenski verknotet seine Schülerin und eröffnet ein Eiscafé
 - Folge vom 25.09.2016: Das kleine Zaubergenie
@@ -7,3 +7,4 @@
 - Folge vom 16.10.2016: Marc-Oliver beim Chinesischen All-You-Can-Eat Buffet
 - Folge vom 23.10.2016: Das Rührei-Kleid
 - Folge vom 30.10.2016: Gedicht von der einsamen Gerlinde
+- Folge vom 06.11.2016: Der kleine Penis
