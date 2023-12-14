@@ -80,6 +80,7 @@
 - 06.11.2016: Spoon - Inside Out
 - 13.11.2016: Neil Young - Rockin' in the Free World (**Fehlt auf der Playlist**)
 - 13.11.2016: Guided By Voices - Hold on Hope
+- 13.11.2016: Kenneth Pattengale & Joey Ryan - Charlie
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
