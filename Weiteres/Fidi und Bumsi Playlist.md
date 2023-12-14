@@ -29,6 +29,7 @@
 - 16.10.2016: David Bowie - Space Oddity
 - 23.10.2016: Bob Dylan - Ballad of Thin Man
 - 30.10.2016: Maeckes - Gettin' Jiggy with it
+- 06.11.2016: Bernd Begemann, Die Befreiung - Unoptimiert
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -75,6 +76,7 @@
 - 16.10.2016: Patrick Watson - The Great Escape
 - 23.10.2016: A.A. Bondy - A Slow Parade
 - 30.10.2016: Manfred Krug - Wenn's draußen grün wird (**Fehlt auf der Playlist**)
+- 06.11.2016: Spoon - Inside Out
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
