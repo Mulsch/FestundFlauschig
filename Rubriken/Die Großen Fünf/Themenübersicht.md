@@ -113,6 +113,7 @@
 - Bundeskanzler (15.09.2013)
 - Attraktive deutsche Politikerinnen (22.09.2013)
 - Politiker, die Sanft & Sorgfältig hören (03.05.2015)
+- Potenzielle Bundespräsidenten (06.11.2016)
 
 *Verschiedenes*
 - Deutsche Fleischesser/-innen (16.06.2013)
