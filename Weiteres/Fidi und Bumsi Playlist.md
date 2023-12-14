@@ -73,6 +73,7 @@
   - *Gut zum Autofahren*
 - 16.10.2016: Patrick Watson - The Great Escape
 - 23.10.2016: A.A. Bondy - A Slow Parade
+- 30.10.2016: Manfred Krug - Wenn's draußen grün wird (**Fehlt auf der Playlist**)
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
