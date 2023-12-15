@@ -11,3 +11,4 @@
 - Folge vom 13.11.2016: Liebesbrief an Europa
 - Folge vom 20.11.2016: Wortspiele mit dem Nervenkostüm
 - Folge vom 27.11.2016: Das zweite Arschloch
+- Folge vom 04.12.2016: Der kleine braune Brustbeutel aus echtem Leder
