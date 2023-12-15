@@ -32,6 +32,7 @@
 - 06.11.2016: Bernd Begemann, Die Befreiung - Unoptimiert
 - 13.11.2016: Queen - Somebody To Love
 - 20.11.2016: Kinderkarneval - Der Ententanz
+- 20.11.2016: Juli - Geile Zeit (**Fehlt auf der Playlist**)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -83,6 +84,8 @@
 - 13.11.2016: Guided By Voices - Hold on Hope
 - 13.11.2016: Kenneth Pattengale & Joey Ryan - Charlie
 - 20.11.2016: Ed Hardcourt - Rain on the Pretty Ones
+- 20.11.2016: Archie Daggers & Tender Slider - If Love Has Grown (Into a Stranger)
+- 20.11.2016: Archie Daggers & Tender Slider - Ancient Roads
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
