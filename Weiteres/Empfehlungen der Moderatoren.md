@@ -6,7 +6,8 @@ _**Bücher:**_
 - "Wann wird es endlich wieder so wie es nie war" von Joachim Meyerhoff (Olli, F&F, 14.09.2016, 1:01:05)
 - "Raumpatrouille" von Matthias Brandt (Olli, F&F, 02.10.2016, 1:00:20)
 - "Warum ich Monarchist geworden bin" von Joseph von Westpfahlen (Olli, F&F, 09.10.2016, 33:55)
-- "Weiße Nächte" Dostojewski (Olli, F&F, 27.11.2016, 1:13:55) 
+- "Weiße Nächte" von Dostojewski (Olli, F&F, 27.11.2016, 1:13:55)
+- "Vom Ende der Einsamkeit" von Benedict Wells (Olli, F&F, 04.12.2016, 4:15)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
