@@ -33,6 +33,7 @@
 - 13.11.2016: Queen - Somebody To Love
 - 20.11.2016: Kinderkarneval - Der Ententanz
 - 20.11.2016: Juli - Geile Zeit (**Fehlt auf der Playlist**)
+- 27.11.2016: Queen - Radio Ga Ga
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
