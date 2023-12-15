@@ -10,3 +10,4 @@
 - Folge vom 06.11.2016: Der kleine Penis
 - Folge vom 13.11.2016: Liebesbrief an Europa
 - Folge vom 20.11.2016: Wortspiele mit dem Nervenkostüm
+- Folge vom 27.11.2016: Das zweite Arschloch
