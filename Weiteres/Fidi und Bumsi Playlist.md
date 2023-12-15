@@ -34,6 +34,10 @@
 - 20.11.2016: Kinderkarneval - Der Ententanz
 - 20.11.2016: Juli - Geile Zeit (**Fehlt auf der Playlist**)
 - 27.11.2016: Queen - Radio Ga Ga
+- 27.11.2016: Blumfield - Komm ud mit in den Alltag
+- 04.12.2016: Whigfield - Saturday Night (**Fehlt auf der Playlist**)
+- 04.12.2016: Magic Affair - Omen 3 (**Fehlt auf der Playlist**)
+- 04.12.2016: Olli Schulz - Mach den Bibo (**Fehlt auf der Playlist**)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -88,7 +92,10 @@
 - 20.11.2016: Archie Daggers & Tender Slider - If Love Has Grown (Into a Stranger)
 - 20.11.2016: Archie Daggers & Tender Slider - Ancient Roads
 - 27.11.2016: Rod Stewart - It's A Heartache
-  
+- 27.11.2016: Radiohead - Knives Out
+- 27.11.2016: Colin Hay - Beautiful World (**Fehlt auf der Playlist**)
+- 04.12.2016: Jim Sullivan - U.F.O
+
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
