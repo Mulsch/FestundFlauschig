@@ -1,0 +1,18 @@
+- Dauer: 1:18:31
+- Titelerklärung: ab 3:15
+- Jan erzählt direkt zu Beginn, dass er jetzt mit einem Pferd zusammen ist und deswegen auf Ketamin ist
+- Gespräch über Monchhichi, Mon Chéri und Ü-Ei Figuren
+- Gespräch über Schwesta Ewa und Ali As
+- Olli war Fast Food essen, Anschlussgespräch über Döner und Hähnchenhaut
+- Humoristisches Gespräch über züchtbare Tierhaut
+- Ollis Spotify-Name: ollipolli73
+- *Mario Basler und die Füße Einspieler*
+- Olli liest Fanpost zum Thema Liebeskummer vor
+- Gespräche über Transgender und Ollis erste große Liebe (s. Hannes Wader Konzert, Folge vom 10.07.2016)
+- Gespräch über Stefan Niggemeier
+- Jan schlägt vor, dass Olli eine Sendung in VR macht
+- Olli zitiert Platon und Jan spricht über Sternenstaub
+- Jan spricht über eine Show-Idee, beid er Künstler mit anderen Künstlern auf der Bühne stehen, die sie nicht mögen
+- Olli erzählt Leichenwitz (1:07:20)
+- Jan macht zum Abschluss den Appell, eine Zeitung zu abonnieren und Facebook und Google zu verstaatlichen
+- Olli beendet die Sendung wieder mit einem schlauen Spruch
