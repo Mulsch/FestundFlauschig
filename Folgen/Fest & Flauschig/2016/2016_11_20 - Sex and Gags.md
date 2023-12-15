@@ -1,5 +1,5 @@
 - Dauer: 1:03:51
-- Titelerklärung: ?
+- Titelerklärung: ab 1:45
 - Anfangsgespräche über "Brockhaus", "Putin" - russische Pommes mit Pulled Pork und Jans Matratze
 - Gespräch über Obama-Witz im Radio[^1] und Florian Schröders Witzstreit
 - Olli erzählt einen Kondom-Witz (11:00)
