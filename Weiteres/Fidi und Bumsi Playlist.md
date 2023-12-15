@@ -87,6 +87,7 @@
 - 20.11.2016: Ed Hardcourt - Rain on the Pretty Ones
 - 20.11.2016: Archie Daggers & Tender Slider - If Love Has Grown (Into a Stranger)
 - 20.11.2016: Archie Daggers & Tender Slider - Ancient Roads
+- 27.11.2016: Rod Stewart - It's A Heartache
   
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
