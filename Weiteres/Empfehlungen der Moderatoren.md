@@ -6,6 +6,7 @@ _**Bücher:**_
 - "Wann wird es endlich wieder so wie es nie war" von Joachim Meyerhoff (Olli, F&F, 14.09.2016, 1:01:05)
 - "Raumpatrouille" von Matthias Brandt (Olli, F&F, 02.10.2016, 1:00:20)
 - "Warum ich Monarchist geworden bin" von Joseph von Westpfahlen (Olli, F&F, 09.10.2016, 33:55)
+- "Weiße Nächte" Dostojewski (Olli, F&F, 27.11.2016, 1:13:55) 
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
@@ -27,12 +28,15 @@ _**Filme:**_
 - "Die erstaunliche Karriere des Mehmet Göker" (Jan, F&F, 24.07.2016, 51:00)
 - "Popstar - Never Stop Never Stopping" (Jan, F&F, 04.09.2016, 1:21:00)
 - "Toni Erdmann" (Jan, F&F, 11.09.2016, 34:00)
+- "Citizen Kane" (Olli, F&F, 27.11.2016, 1:12:55)
   
 _**Hörspiele:**_
 - Marco Göllner: "Fallen" (Olli, F&F, 04.09.2016, 1:17:40)
 - "Der talentierte Mr. Vossen" (Olli, F&F, 09.10.2016, 30:10)
 - "Edgar Allen Poe" (Olli, F&F, 16.10.2016, 27:45)
 
+_**YouTube:**_
+- Orson Welles Wine Commercial" (Olli, F&F, 27.11.2016, 1:13:30) 
 
 _**Verschiedenes:**_
 - Newsletter "Vollmond Info" (Olli, F&F, 06.07.2016, 18:30)
