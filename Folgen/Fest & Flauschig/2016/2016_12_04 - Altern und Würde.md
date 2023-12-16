@@ -9,6 +9,6 @@
 - Gespräch über Vorbilder und Altern im Fernsehen
 - Olli trinkt Wasser mit Waldmeisterextrakt und erzählt von einem Typen mit Kauleiste
 - Jan spricht über Kühltruhen, Eis, Socken und sein Küchenradio
-- Gespräch über den Weihnachtszirkus und Kieferorthopäden
+- Abschließende Gespräche über den Weihnachtszirkus und Kieferorthopäden
 
 [^1]: https://www.n-tv.de/mediathek/magazine/so_muncu/Es-lebe-die-Fressefreiheit-was-duerfen-wir-noch-sagen--article19188311.html
