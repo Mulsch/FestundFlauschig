@@ -95,6 +95,7 @@
 - 27.11.2016: Radiohead - Knives Out
 - 27.11.2016: Colin Hay - Beautiful World (**Fehlt auf der Playlist**)
 - 04.12.2016: Jim Sullivan - U.F.O
+- 11.12.2016: Stephan Sulke - Ich hab dich bloß geliebt (**Fehlt auf der Playlist**)
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
