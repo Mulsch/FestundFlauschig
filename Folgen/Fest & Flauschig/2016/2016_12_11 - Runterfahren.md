@@ -13,6 +13,7 @@
 - Jan hat einige Songs von der "Fidi & Bumsi" Liste entfernt und entschuldigt sich
 - *Metal Einspieler eines Fans*
 - Gespräche über Köllner Tritt-Video[^1] und "das Gute im Menschen"
-- Weiter: 43:25
+- Gespräche über das indische Kastensystem, höhere Lebenskosten und die AfD
+- 
 
 [^1]: https://www.youtube.com/watch?v=scaSu1CvHhU
