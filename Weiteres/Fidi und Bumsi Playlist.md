@@ -40,6 +40,7 @@
 - 04.12.2016: Olli Schulz - Mach den Bibo (**Fehlt auf der Playlist**)
 - 11.
 - 11.12.2016: John Lennon, Yoko Ono - Happy Xmas (War is Over)
+- 18.12.2016: Run-D.M.C., Aerosmith - Walk This Way
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -98,10 +99,13 @@
 - 27.11.2016: Colin Hay - Beautiful World (**Fehlt auf der Playlist**)
 - 04.12.2016: Jim Sullivan - U.F.O
 - 11.12.2016: Stephan Sulke - Ich hab dich bloß geliebt (**Fehlt auf der Playlist**)
+- 18.12.2016: Beastie Boys, Q-Tip - Get it Together
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
+- 18.12.2016: Lee Hazlewood - Love and Other Crimes (Bela B)
+- 18.12.2016: N.W.A. - Just Don't Bite It (Bela B)
 
 **Nicht erwähnte Songs auf der Playlist**
 - 11.12.2016: Kollegah - Bei Sonnenuntergang
