@@ -12,6 +12,7 @@
 - Ina Müller - Folge 113 (28.06.2015)
 - Dr. Peter Vajkoczy – Folge 126 (25.10.2015)
 - Nora Tschirner – Folge 138 (24.01.2016)
-- Thees Uhlmann - Folge vom 12.06.2016
-- Heinz Strunk - Folge vom 31.07.2016
-- Ina Müller - Folge vom 31.07.2016
+- Thees Uhlmann - Folge 155 (12.06.2016)
+- Heinz Strunk - Folge 163 (30.07.2016)
+- Ina Müller - Folge 163 (30.07.2016)
+- Bela B - Folge 179 (18.12.2016)
