@@ -34,10 +34,11 @@
 - 20.11.2016: Kinderkarneval - Der Ententanz
 - 20.11.2016: Juli - Geile Zeit (**Fehlt auf der Playlist**)
 - 27.11.2016: Queen - Radio Ga Ga
-- 27.11.2016: Blumfield - Komm ud mit in den Alltag
+- 27.11.2016: Blumfield - Komm du mit in den Alltag
 - 04.12.2016: Whigfield - Saturday Night (**Fehlt auf der Playlist**)
 - 04.12.2016: Magic Affair - Omen 3 (**Fehlt auf der Playlist**)
 - 04.12.2016: Olli Schulz - Mach den Bibo (**Fehlt auf der Playlist**)
+- 11.12.2016: John Lennon, Yoko Ono - Happy Xmas (War is Over)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
