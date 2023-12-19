@@ -38,6 +38,7 @@
 - 04.12.2016: Whigfield - Saturday Night (**Fehlt auf der Playlist**)
 - 04.12.2016: Magic Affair - Omen 3 (**Fehlt auf der Playlist**)
 - 04.12.2016: Olli Schulz - Mach den Bibo (**Fehlt auf der Playlist**)
+- 11.
 - 11.12.2016: John Lennon, Yoko Ono - Happy Xmas (War is Over)
   
 **Hinzugefügt von Olli:**
@@ -101,3 +102,6 @@
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
+
+**Nicht erwähnte Songs auf der Playlist**
+- 11.12.2016: Kollegah - Bei Sonnenuntergang
