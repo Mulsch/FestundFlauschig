@@ -16,7 +16,10 @@
 - Jan spricht über die Netflix Doku "Hip-Hop Evolution"
 - Olli erzählt von seinem ersten Konzert (Run DMC) und spricht mit Bela B über Musik (Boo-Ya T.R.I.B.E und Bushwick Bill)
 - *Shi-Power Einspieler*
-- Gespräch über Ostseeurlaub, Olli erzählt vom Baby-Krokodil, dass er freigelassen hat (s. Folge vom 12.06.2016)
+- Gespräch über Ostseeurlaub, Olli erzählt vom Baby-Krokodil, dass er freigelassen hat (s. Folgen vom 12.05.2013 & 12.06.2016)
+- Olli singt das Lied "Einen Schlumpf kann man nicht tätowieren"
+- Bela B erzählt von Ollis Scherzanruf bei ihm in Circus Halligalli
+- Olli und Bela B verabreden sich zum Abschluss gemeinsam "Human Centipede 3" zu gucken
 
 [^1]: https://www.morgenpost.de/kultur/tv/article209070829/Boehmermann-bei-Lanz-Eine-Staatskrise-pro-Jahr-reicht.html 
 [^2]: https://www.elle.de/jan-boehmermann-mann-des-jahres-2016
