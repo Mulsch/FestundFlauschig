@@ -14,7 +14,9 @@
 - Bela B redet über die Synchronisation von *Sartana – noch warm und schon Sand drauf*
 - Seriengespräche (Lost, Prison Break, Black Mirror)
 - Jan spricht über die Netflix Doku "Hip-Hop Evolution"
-- Olli erzählt von seinem ersten Konzert (Run DMC)
+- Olli erzählt von seinem ersten Konzert (Run DMC) und spricht mit Bela B über Musik (Boo-Ya T.R.I.B.E und Bushwick Bill)
+- *Shi-Power Einspieler*
+- Gespräch über Ostseeurlaub, Olli erzählt vom Baby-Krokodil, dass er freigelassen hat (s. Folge vom 12.06.2016)
 
 [^1]: https://www.morgenpost.de/kultur/tv/article209070829/Boehmermann-bei-Lanz-Eine-Staatskrise-pro-Jahr-reicht.html 
 [^2]: https://www.elle.de/jan-boehmermann-mann-des-jahres-2016
