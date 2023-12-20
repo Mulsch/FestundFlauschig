@@ -1,0 +1,6 @@
+- Dauer: 59:24
+- Titelerklärung: ab 0:15
+- Sendung ohne Göllner-Intro
+- Weihnachtszirkus und Anschlag auf Breitscheidplatz werden ausführlich besprochen
+- Gespräch über Promi-Graffitis im Schaustellergewerbe
+- Weiter: 15:09
