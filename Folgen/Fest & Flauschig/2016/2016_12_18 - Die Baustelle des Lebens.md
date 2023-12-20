@@ -1,5 +1,5 @@
 - Dauer: 1:16:36
-- Titelerklärung:
+- Titelerklärung: ab 4:50
 - **Coveränderung**: Selbes Bild, festlich mit Lametta gestaltet
 - Olli hat einen Kater vom Trinken, Podcast vor Weihnachtszirkus
 - Gast in der Sendung: Bela B
