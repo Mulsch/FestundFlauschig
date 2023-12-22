@@ -1,6 +1,7 @@
 - Dauer: 59:24
 - Titelerklärung: ab 0:15
 - Sendung ohne Göllner-Intro
-- Weihnachtszirkus und Anschlag auf Breitscheidplatz werden ausführlich besprochen
+- Weihnachtszirkus und Anschlag am Breitscheidplatz werden ausführlich besprochen
 - Gespräch über Promi-Graffitis im Schaustellergewerbe
-- Weiter: 15:09
+- Gespräche über die BILD-Zeitung, eine mögliche Ausstrahlung des Weihnachtszirkus und den Umgang der Lokalen mit dem Attentat
+- Weiter: 26:45
