@@ -41,6 +41,7 @@
 - 11.
 - 11.12.2016: John Lennon, Yoko Ono - Happy Xmas (War is Over)
 - 18.12.2016: Run-D.M.C., Aerosmith - Walk This Way
+- 25.12.2016: David Bowie - Where Are We Now?
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -100,6 +101,7 @@
 - 04.12.2016: Jim Sullivan - U.F.O
 - 11.12.2016: Stephan Sulke - Ich hab dich bloß geliebt (**Fehlt auf der Playlist**)
 - 18.12.2016: Beastie Boys, Q-Tip - Get it Together
+- 25.12.2016: John Mayer - The Age of Worry
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
