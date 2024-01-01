@@ -8,6 +8,6 @@
 - Gespräche über das Essen von Tauben, Spenden vom Weihnachtszirkus
 - Olli war nach dem Weihnachtszirkus mit Palina Rojinski in der Schwulenbar und Jan spricht über seinen Eindruck von Berlin am Tag danach
 - Gespräch über Religionen, Olli war in der Kirche bei einem Chorkonzert
-- Beide bedanken sich zum Abschluss bei einer Menge Leuten und Olli bedankt sich ironisch noch einmal einzeln "bei allen Buchstaben, die in seinen Songs mitgemacht haben"
+- Beide bedanken sich zum Abschluss bei einer Menge Leuten und Olli bedankt sich sarkastisch noch einmal einzeln "bei allen Buchstaben, die in seinen Songs mitgemacht haben"
 
 [^1]: https://www.stuttgarter-nachrichten.de/inhalt.veganer-gegen-fleischesser-andreas-baer-laesker-kritisiert-benefiz-essen-von-frank-zander.76c9e0fa-394a-4468-ad32-3a524708b9fe.html
