@@ -38,10 +38,10 @@
 - 04.12.2016: Whigfield - Saturday Night (**Fehlt auf der Playlist**)
 - 04.12.2016: Magic Affair - Omen 3 (**Fehlt auf der Playlist**)
 - 04.12.2016: Olli Schulz - Mach den Bibo (**Fehlt auf der Playlist**)
-- 11.
 - 11.12.2016: John Lennon, Yoko Ono - Happy Xmas (War is Over)
 - 18.12.2016: Run-D.M.C., Aerosmith - Walk This Way
 - 25.12.2016: David Bowie - Where Are We Now?
+- 25.12.2016: Frankie Goes To Hollywood - The Power Of Love
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
