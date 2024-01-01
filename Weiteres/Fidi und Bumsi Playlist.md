@@ -102,6 +102,7 @@
 - 11.12.2016: Stephan Sulke - Ich hab dich bloß geliebt (**Fehlt auf der Playlist**)
 - 18.12.2016: Beastie Boys, Q-Tip - Get it Together
 - 25.12.2016: John Mayer - The Age of Worry
+- 25.12.2016: Sam Cooke - A Change Is Gonna Come
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
