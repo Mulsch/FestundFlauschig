@@ -112,6 +112,7 @@
 - 05.02.2017: Blink 182 - What's My Age Again? (**Auf Playlist nicht auf originaler Position**)
 - 05.02.2017: Gisbert Zu Knyphausen - Das Licht dieser Welt
 - 12.02.2017: Karl Blau - Let the World Go By
+- 12.02.2017: Superpunk - Neue Zähne für meinen Bruder und mich
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
