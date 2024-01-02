@@ -10,8 +10,8 @@
 - Jan erzählt von seiner Sendung, Luke Mockridge und spricht nochmal die Sarah Kuttner Geschichte an (s. Folge vom 04.09.2016)
 - Jimmy Fallon und die Moral eines Fernsehmoderators werden besprochen
 - Jan erzählt von seinem Auftritt in der Sendung vom Olaf Schubert, Olli erzählt von seiner Coca Cola Werbung
-- Olli erzählt von Kirmes-Fabian[^4] und 
-- Jan spricht über John Cleese, es folgt ein ausführliches über den Eintritt Christopher Lauers ("unser kleiner Racker") in die SPD und die Abgeordnetenwahl in Berlin
+- Olli erzählt von Kirmes-Fabian[^4]
+- Jan spricht über John Cleese, es folgt ein ausführliches Gespräch über den Eintritt Christopher Lauers ("unser kleiner Racker") in die SPD und die Abgeordnetenwahl in Berlin
 - Jan spielt seit langem wieder mit dem Gedanken, ob er in die Politik gehen sollte ("Ich trete niemals in eine Partei ein")
 - Beide sprechen über das Übereinanderschlagen der Beine bei Männern
 - Jan spricht über den "Safe Place" beim Fangenspielen und dessen unterschiedliche Namen in Deutschland
