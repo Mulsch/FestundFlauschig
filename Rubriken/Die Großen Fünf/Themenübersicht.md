@@ -102,6 +102,7 @@
 - Alphatiere (01.03.2015)
 - Fernsehpersönlichkeiten, die sie nicht vermissen (06.09.2015)
 - Prominente, die sie gerne mal verfolgen würden (04.09.2016)
+- Comedians, die sie unlustig finden (05.02.2017)
 
 *Musiker*
 - Schlagerstars (24.11.2013)
