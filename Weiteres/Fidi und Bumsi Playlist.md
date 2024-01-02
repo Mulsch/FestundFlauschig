@@ -105,6 +105,7 @@
 - 25.12.2016: John Mayer - The Age of Worry
 - 25.12.2016: Sam Cooke - A Change Is Gonna Come
 - 29.01.2017: Robert Palmer - Johnny And Mary
+- 29.01.2017: Robert Plant - Rainbow
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
