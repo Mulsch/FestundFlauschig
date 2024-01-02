@@ -14,3 +14,4 @@
 - Folge vom 04.12.2016: Der kleine braune Brustbeutel aus echtem Leder
 - Folge vom 11.12.2016: Das Gedicht vom Wolf im Schafspelz
 - Folge vom 18.12.2016: Selbsthilfegruppe Hack!
+- Folge vom 29.01.2016: August Glotzkopf aus Augsburg
