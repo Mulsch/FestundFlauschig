@@ -8,7 +8,7 @@
 - Gespräch über den Weihnachtszirkus
 - Jan spendet für Amensty International und Wikpedia, Olli spendet für die Sternenbrücke Hamburg und Greenpeace
 - *Mario Basler und der neidische Nachbar Einspieler*
-- Olli hatte mal wieder eine Ratte im Bad und vom Kammerjäger
+- Olli hatte mal wieder eine Ratte im Bad und Besuch vom Kammerjäger
 - Jan erzählt, dass er mit Hoodie nicht fotografiert werden möchte
 - Gespräch über Schlager im ÖRR und Lena Meyer-Landrut
 - Olli redet über die Bands "Juli" und "Silbermond" und liest Fanpost über weitere Superhelden vor
