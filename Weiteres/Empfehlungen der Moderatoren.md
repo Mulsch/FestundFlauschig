@@ -10,6 +10,7 @@ _**Bücher:**_
 - "Vom Ende der Einsamkeit" von Benedict Wells (Olli, F&F, 04.12.2016, 4:15)
 - "Der Tag an dem Louis gefressen wurde" (Jan, F&F, 29.01.2016, 24:30)
 - "Der Krokodildieb" (Olli, F&F, 29.01.2016, 25:30)
+- "Dienstags bei Morrie" von Mitch Albom (Olli, F&F, 29.01.2016, 01:00:30)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
