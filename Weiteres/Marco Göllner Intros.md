@@ -17,3 +17,4 @@
 - Folge vom 29.01.2017: August Glotzkopf aus Augsburg
 - Folge vom 05.02.2017: Wortspiele mit der A-capella-Sängerin
 - Folge vom 12.02.2017: Die Diskussion über Männer und Frauen
+- Folge vom 19.02.2017: Gedicht "Schmetterlingsliebe in Malta"
