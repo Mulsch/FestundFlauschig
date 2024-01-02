@@ -40,4 +40,3 @@
 - Die Auflistung zur Rubrik "Entweder/Oder" fehlt.
 - Eine spezielle Übersicht zu Empfehlungen der Moderatoren ist voerst nur für den Podcast "Fest und Flauschig" in Arbeit. Eine solche Übersicht für ZaH und S&S würde ein erneutes Hören der Folgen erfordern und steht dementsprechend hinten an.
 - SpiegelTV Vorhersagen sind derzeit nur mit Folgenangabe katalogisiert. Details und Zeitstempel stehen noch aus.
-- Liste der Intros und Liste der Einspieler
