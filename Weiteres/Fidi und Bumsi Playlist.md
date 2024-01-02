@@ -44,6 +44,7 @@
 - 25.12.2016: Frankie Goes To Hollywood - The Power Of Love
 - 29.01.2017: Christopher Walken - I Wan'na Be Like You
 - 05.02.2017: Emma Stone - Audition (The Fools Who Dream)
+- 05.02.2017: Die Ärzte - Schrei nach Liebe (**Auf Playlist nicht auf originaler Position -- 2 mal auf der Playlist**)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
