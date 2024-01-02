@@ -88,7 +88,7 @@
   - *Gut zum Autofahren*
 - 16.10.2016: Patrick Watson - The Great Escape
 - 23.10.2016: A.A. Bondy - A Slow Parade
-- 30.10.2016: Manfred Krug - Wenn's draußen grün wird (**Fehlt auf der Playlist**)
+- 30.10.2016: Manfred Krug - Wenn's draußen grün wird (**Auf Playlist nicht auf originaler Position**)
 - 06.11.2016: Spoon - Inside Out
 - 13.11.2016: Neil Young - Rockin' in the Free World (**Fehlt auf der Playlist**)
 - 13.11.2016: Guided By Voices - Hold on Hope
@@ -98,7 +98,7 @@
 - 20.11.2016: Archie Daggers & Tender Slider - Ancient Roads
 - 27.11.2016: Rod Stewart - It's A Heartache
 - 27.11.2016: Radiohead - Knives Out
-- 27.11.2016: Colin Hay - Beautiful World (**Fehlt auf der Playlist**)
+- 27.11.2016: Colin Hay - Beautiful World (**Auf Playlist nicht auf originaler Position**)
 - 04.12.2016: Jim Sullivan - U.F.O
 - 11.12.2016: Stephan Sulke - Ich hab dich bloß geliebt (**Fehlt auf der Playlist**)
 - 18.12.2016: Beastie Boys, Q-Tip - Get it Together
@@ -106,6 +106,7 @@
 - 25.12.2016: Sam Cooke - A Change Is Gonna Come
 - 29.01.2017: Robert Palmer - Johnny And Mary
 - 29.01.2017: Robert Plant - Rainbow
+- 05.02.2017: Blink 182 - What's My Age Again? (**Auf Playlist nicht auf originaler Position**)
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
