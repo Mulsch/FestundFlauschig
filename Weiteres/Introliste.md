@@ -1,7 +1,8 @@
+- radio 1 Intro - 07.10.2012 
 - Neues Olli-Intro (Jan wacht bei Olli zu Hause auf) - 01.06.2014
-- Reißerisches Olli-Intro - 08.06.2014
+- "Reißerisches" Olli-Intro - 08.06.2014
 - Neues Olli-Intro - 02.11.2014
 - Star Wars Intro - 29.05.2016
 - "Oh wie geil"-Intro - 12.06.2016
 - Bauernhof-Intro - 17.07.2016
-- Offizieller F&F Intro Song ("Come on and talk to me") - 11.09.2016
+- Erster offizieller F&F Intro Song ("Come on and talk to me") - 11.09.2016
