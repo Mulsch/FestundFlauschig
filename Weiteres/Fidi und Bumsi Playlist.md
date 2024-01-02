@@ -43,6 +43,7 @@
 - 25.12.2016: David Bowie - Where Are We Now?
 - 25.12.2016: Frankie Goes To Hollywood - The Power Of Love
 - 29.01.2017: Christopher Walken - I Wan'na Be Like You
+- 05.02.2017: Emma Stone - Audition (The Fools Who Dream)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -107,6 +108,7 @@
 - 29.01.2017: Robert Palmer - Johnny And Mary
 - 29.01.2017: Robert Plant - Rainbow
 - 05.02.2017: Blink 182 - What's My Age Again? (**Auf Playlist nicht auf originaler Position**)
+- 05.02.2017: Gisbert Zu Knyphausen - Das Licht dieser Welt
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
