@@ -46,6 +46,7 @@
 - 05.02.2017: Emma Stone - Audition (The Fools Who Dream)
 - 05.02.2017: Die Ärzte - Schrei nach Liebe (**Auf Playlist nicht auf originaler Position -- 2 mal auf der Playlist**)
 - 12.02.2017: Trey Songz - Life on Mars?
+- 19.02.2017: Al Jarreau - Your Song
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -114,6 +115,7 @@
 - 12.02.2017: Karl Blau - Let the World Go By
 - 12.02.2017: Superpunk - Neue Zähne für meinen Bruder und mich
 - 19.02.2017: Counting Crows - Perfect Blue Buildings
+- 19.02.2017: The Zombies - Time of the Season
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
