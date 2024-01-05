@@ -15,8 +15,12 @@
 - Gespräch über die eigene Körpergröße, beide sind groß und werden oft darauf angesprochen (Olli ist 1,95m)
 - Jan spricht über den Sexting-Skandal von Anthony Weiner
 - Olli schlägt vor, neue Gäste in den Sendung zu holen (z.B. Atze Schröder)
-- Weiter: 51:07 
+- Olli spricht über das Schamgefühl bei Promibegegnungen
+- Jan spricht den Nacktbilder Skandal von Lena Meyer-Landrut an[^2] und kritisiert den journalistischen Anspruch in Deutschland
+- Olli spricht humoristisch über Scarlett Johansson (Eingebutterter Maiskolben) und Stephen Hawking
+- Jan erzählt abschließend über Paralympics (lehnt er innerlich ab) 
 
 
 
 [^1]: https://www.bz-berlin.de/archiv-artikel/bushido-kritisiert-berliner-postfiliale-und-belustigt-damit-twitter-user
+[^2]: https://www.spiegel.de/panorama/lena-meyer-landrut-soll-keine-nacktbilder-machen-doch-a-00000000-0003-0001-0000-000001193333
