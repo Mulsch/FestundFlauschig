@@ -125,6 +125,7 @@
 - Promiwohnungen, in denen sie Mäuschen spielen wollen (11.08.2013)
 - Freundschaften (01.06.2014)
 - Feindschaften (22.06.2014)
+- Prominente, neben denen sie gerne wohnen würden (19.02.2017)
 
 ***Radio und Musik***
 - Radio Ideen von Udo Kier (17.02.2013)
