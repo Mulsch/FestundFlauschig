@@ -1,0 +1,8 @@
+- Dauer: 1:23:54
+- Titelerklärung: ab 6:05
+- Jan hat Geburtstag, Olli gratuliert
+- Olli una Jan entschuldigen sich für die Rathaus-Veganer-Geschichte (s. Folge vom 19.02.2017)
+- Jan spricht über Erotikmassagen und Olli prophezeit über Zusammenhang zwischen Sex und Intelligenz
+- Olli spricht über den "Preis des Lebens" und hat Zukunftsängste
+- Olli erzählt über Philipp Poisels Körpergröße und Jan lästert über Matthias Schweighöfers Musik (redet sich in Rage)
+- Olli erzählt über sein Fettnäpchen beim Dreh von *Der Tatortreiniger*
