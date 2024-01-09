@@ -5,7 +5,7 @@
 - Olli erzählt einen Kondom-Witz (11:00)
 - Jan schaut nebenbei die Bambi-Verleihung mit Robbie Williams
 - Olli hat eine technische Panne und spricht nochmal die Gallagher-Story an
-- Gespräch über den Weihnachtszirkus
+- Gespräch über den Weihnachtszirkus und Schwester Ewa
 - Jan spendet für Amensty International und Wikpedia, Olli spendet für die Sternenbrücke Hamburg und Greenpeace
 - *Mario Basler und der neidische Nachbar Einspieler*
 - Olli hatte mal wieder eine Ratte im Bad und Besuch vom Kammerjäger
