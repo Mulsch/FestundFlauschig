@@ -6,3 +6,9 @@
 - Olli spricht über den "Preis des Lebens" und hat Zukunftsängste
 - Olli erzählt über Philipp Poisels Körpergröße und Jan lästert über Matthias Schweighöfers Musik (redet sich in Rage)
 - Olli erzählt über sein Fettnäpchen beim Dreh von *Der Tatortreiniger*
+- Gespräche über Max Giesinger, Jans Preisgewinn beim "Art Directors Club"
+- Ausführliches Gespräch über Social Media Moderation (insb. Facebook und YouTube) und Meinungsfreiheit im Internet + kurzes Zusatzgespräche über die Polizei und PEGIDA
+- Olli erzählt eine Geschichte von seinem Einzug in die neue Wohnung (Nachbar wollte direkt die Polizei rufen, wenn er Musik hört) und spricht über seinen "New York Chai Tee"
+- Beide sind in Berlin, Jan sitzt im Studio und Olli sitzt zu Hause (waren zusammen essen)
+- Olli erzählt von seinem *Buddy Tag* Dreh mit Joko & Klaas
+- *Frau mag die Clique nicht Einspieler*
