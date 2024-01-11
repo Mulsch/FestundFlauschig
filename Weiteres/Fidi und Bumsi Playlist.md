@@ -121,6 +121,7 @@
 - 19.02.2017: The Zombies - Time of the Season
 - 26.02.2017: Philipp Poisel - Zünde alle Feuer
 - 26.02.2017: Thommie Bayer - Der letzte Cowboy
+- 05.03.2017: Elliot Smith - Everything reminds me of her
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
