@@ -16,3 +16,4 @@
 - Heinz Strunk - Folge 163 (30.07.2016)
 - Ina Müller - Folge 163 (30.07.2016)
 - Bela B - Folge 179 (18.12.2016)
+- Ralph Ruthe - Folge 186 (05.03.2016)
