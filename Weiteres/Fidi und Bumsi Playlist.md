@@ -127,6 +127,7 @@
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
 - 18.12.2016: Lee Hazlewood - Love and Other Crimes (Bela B)
 - 18.12.2016: N.W.A. - Just Don't Bite It (Bela B)
+- 05.03.2017: Damien Rice - Cannonball (Ralph Ruthe)
 
 **Nicht erwähnte Songs auf der Playlist**
 - 11.12.2016: Kollegah - Bei Sonnenuntergang
