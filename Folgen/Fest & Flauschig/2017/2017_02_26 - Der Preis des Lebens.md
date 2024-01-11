@@ -1,7 +1,7 @@
 - Dauer: 1:23:54
 - Titelerklärung: ab 6:05
-- Jan hat Geburtstag, Olli gratuliert
-- Olli und Jan entschuldigen sich für die Rathaus-Veganer-Geschichte (s. Folge vom 19.02.2017)
+- Jan hat(te) Geburtstag, Olli gratuliert
+- Olli und Jan entschuldigen sich für die Rathaus-Veganer-Geschichte (s. Folge vom 19.02.2017), sind auf eine Ente reingefallen
 - Jan spricht über Erotikmassagen und Olli philosophiert über Zusammenhang zwischen Sex und Intelligenz
 - Olli spricht über den "Preis des Lebens" und hat Zukunftsängste
 - Olli erzählt über Philipp Poisels Körpergröße und Jan lästert über Matthias Schweighöfers Musik (redet sich in Rage)
@@ -12,3 +12,23 @@
 - Beide sind in Berlin, Jan sitzt im Studio und Olli sitzt zu Hause (waren zusammen essen)
 - Olli erzählt von seinem *Buddy Tag* Dreh mit Joko & Klaas
 - *Frau mag die Clique nicht Einspieler*
+- Olli fantasiert über Orte, wo der Podcast gerade gehört wird und spricht über das Gericht, dass er seinen Penis bei einem Konzert in den Nudelsalat gehalten hat
+- Jan spricht über Tim Raue und die Netflix-Serie *Chef's Table*
+- Olli erzählt von Luke Mockridges Serie mit Hans Sarpei[^1], Anschlussgespräche über Luke Mockridge, Chris Tall, Florian Silbereisen und die Doku "Schlagerland"
+- Olli spricht über Tortellinis und Theater- und Restaurantbesuche in New York City
+- Ankündigung der Fortsetzung von "Schulz und Böhmermann"
+- Jan spricht über den angebotenen "Doppeldildo von Jan und Olli" von DildoKing
+- Gespräche über das schlechte Englisch von Arnold Schwarzenegger und Todd Berry ("Avant Abstract")
+- Olli spricht über sein Krafttier Joey Kelly (s. Folge vom 02.10.2016) und dessen Alaskareise mit Til Lindemann
+- Jan spricht über das Miniatur Wunderland in Hamburg und deren Aktion, bedürftigen Menschen den Einlass kostenlos zu ermöglichen
+- Olli hat sich in einer schaflosen Nacht "Honig im Kopf" von Til Schweiger angesehen und redet über den Film
+- *Wie kann man so dumm sein Einspieler*
+- Jan spricht erneut über den Nacktfoto-Skandal von Lena Meyer-Landrut (s. Folge vom 19.02.2017) und stellt die Rolle der Polizei infrage - Anschlussgespräch über das Recht auf Privatsphäre von Prominenten
+- Jan schreibt eine SMS und Olli erzählt, dass er inzwischen als Erwachsener Dinge tut, die als Kind verpöhnt waren (z.B. Fernsehen vor 18 Uhr) - Anschlussgespräch über Fernsehen in Kindertagen, Fernsehverbote und der Umgang bei den eigenen Kindern
+- Gespräch über Alexander Gauland ("Dürfen uns nicht von Kinderaugen erpressen lassen")[^2]
+- Jan ist zum Essen verabredet, verrät aber nicht, mit wem und teasert ein Gespräch über die Nationalhymne an
+- Jan spricht über Bushidos Beef mit der Post (s. Folge vom 19.02.2017) und Olli hat Fler getroffen
+- Olli liest zum Abschluss ein Gedicht von Rainer Maria Rilke vor
+
+[^1]: https://www.netflix.com/de/title/80155848
+[^2]: https://www.faz.net/aktuell/politik/fluechtlingskrise/fluechtlingskrise-gauland-duerfen-uns-nicht-von-kinderaugen-erpressen-lassen-14087899.html
