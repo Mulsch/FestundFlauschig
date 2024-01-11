@@ -28,6 +28,8 @@ _**Serien:**_
 - "Vinyl" (Olli, F&F, 12.06.2016, 1:27:00)
 - "Eastbound and Down" (Olli, F&F, 25.09.2016, 40:45)
 - "Cosmos: A Spacetime Odyssey" (Jan, F&F, 16.10.1016, 5:30)
+- "Chef's Table" (Jan, F&F, 26.02.2017, 37:30)
+- "Abstract - The Art of Design" (Jan, F&F, 26.02.2017, 37:45)
 
 _**Filme:**_
 - "Das weiße Band" (Olli, F&F, 26.06.2016, 1:22:30)
