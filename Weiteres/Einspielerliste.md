@@ -31,6 +31,7 @@ Bernd Knauer - Wir sind wie die Vogelspinne[^12] | 04.09.2016
 Bernd Knauer - Die Frau mag die Clique nicht | 04.09.2016
 Bob Dylan Hate | 09.10.2016
 Shi ist Power | 09.10.2016
+Antoine Richard - Wie kann man so dumm sein? | 26.02.2017(?)
 
 [^1]: https://www.youtube.com/watch?v=uglV4X3hhwo
 [^2]: https://www.youtube.com/watch?v=FBq33wtJlC8
