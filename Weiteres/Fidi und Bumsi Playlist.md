@@ -49,6 +49,7 @@
 - 19.02.2017: Al Jarreau - Your Song
 - 26.02.2017: Bilderbuch - I <3 Stress
 - 26.02.2017: Bilderbuch - sneakers4free
+- 26.02.2017: Frank Zappa - Stick It Out
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -119,6 +120,7 @@
 - 19.02.2017: Counting Crows - Perfect Blue Buildings
 - 19.02.2017: The Zombies - Time of the Season
 - 26.02.2017: Philipp Poisel - Zünde alle Feuer
+- 26.02.2017: Thommie Bayer - Der letzte Cowboy
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
