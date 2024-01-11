@@ -47,6 +47,8 @@
 - 05.02.2017: Die Ärzte - Schrei nach Liebe (**Auf Playlist nicht auf originaler Position -- 2 mal auf der Playlist**)
 - 12.02.2017: Trey Songz - Life on Mars?
 - 19.02.2017: Al Jarreau - Your Song
+- 26.02.2017: Bilderbuch - I <3 Stress
+- 26.02.2017: Bilderbuch - sneakers4free
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
