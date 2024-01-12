@@ -50,6 +50,7 @@
 - 26.02.2017: Bilderbuch - I <3 Stress
 - 26.02.2017: Bilderbuch - sneakers4free
 - 26.02.2017: Frank Zappa - Stick It Out
+- 05.03.2017: Joel Grey - Two Ladies
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
