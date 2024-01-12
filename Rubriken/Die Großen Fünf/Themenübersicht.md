@@ -86,6 +86,7 @@
 - Frauenzeitschriften (25.08.2013)
 - Comics der 80er (06.10.2013)
 - Asterix Hefte (06.10.2013)
+- Comics (05.03.2017)
   
 ***Prominente***  
 
