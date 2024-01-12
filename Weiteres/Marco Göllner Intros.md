@@ -19,4 +19,5 @@
 - Folge vom 12.02.2017: Die Diskussion über Männer und Frauen
 - Folge vom 19.02.2017: Gedicht "Schmetterlingsliebe in Malta"
 - Folge vom 26.02.2017: Das Gedicht vom Reiher
-- Folge vom 06.03.2017: Boris Blocksberg und seine Hühnerhaut (inkl. Ralph Ruthe)
+- Folge vom 05.03.2017: Boris Blocksberg und seine Hühnerhaut (inkl. Ralph Ruthe)
+- Folge vom 12.03.2017: Tierische Sprichwörter
