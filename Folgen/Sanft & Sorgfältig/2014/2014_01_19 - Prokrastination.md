@@ -9,7 +9,7 @@
 - Dritter Anrufer: Valentin – Hat beim Song nicht zugehört
 - Gespräch über Twerken (Olli: „Was ist Twerken?“)
 - Olli und Jan planen, einen Monat mit Fahrrad durch Skandinavien zu fahren
-!- Vierter Anrufer: Marek – Wird später zur Podcast-Legende, ruft aber eigentlich nur einfach so an, Jan redet mit Marek über Danzig und seine Familienherkunft
+- Vierter Anrufer: Marek – Wird später zur Podcast-Legende, ruft aber eigentlich nur einfach so an, Jan redet mit Marek über Danzig und seine Familienherkunft
 - Jan und Olli leisten Treueschwur
 - Olli wertet DSDS-Jury aus (Mieze Kaz, Kay One etc.)
 - Fünfter Anrufer: Frank (Marathon Frank) – Wird von Olli angeschnauzt
