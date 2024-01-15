@@ -123,6 +123,8 @@
 - 26.02.2017: Philipp Poisel - Zünde alle Feuer
 - 26.02.2017: Thommie Bayer - Der letzte Cowboy
 - 05.03.2017: Elliot Smith - Everything reminds me of her
+- 12.03.2017: Ryan Adams - Do You Still Love Me?
+  - *Muss man laut Olli auf voller Lautstärke hören*  
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
