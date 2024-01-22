@@ -52,6 +52,7 @@
 - 26.02.2017: Frank Zappa - Stick It Out
 - 05.03.2017: Joel Grey - Two Ladies
 - 12.03.2017: Jacques Palminger, 440hz Trio - Spanky
+- 12.03.2017: Blumfeld - Mein System kennt keine Grenzen
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
