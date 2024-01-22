@@ -43,7 +43,8 @@ _**Hörspiele und Podcasts:**_
 - Marco Göllner: "Fallen" (Olli, F&F, 04.09.2016, 1:17:40)
 - "Der talentierte Mr. Vossen" (Olli, F&F, 09.10.2016, 30:10)
 - "Edgar Allen Poe" (Olli, F&F, 16.10.2016, 27:45)
-- "Bilals Weg in den Terror" (Olli, F&F, 05.07.2017, 52:45)
+- "Bilals Weg in den Terror" (Olli, F&F, 05.03.2017, 52:45)
+- "Einschlafgeschichten für Männer" von Jacques Palminger (Olli, F&F, 12.03.2017, 42:30)
 
 _**YouTube:**_
 - "Orson Welles Wine Commercial" (Olli, F&F, 27.11.2016, 1:13:30)
