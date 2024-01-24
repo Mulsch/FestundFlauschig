@@ -1,5 +1,5 @@
 - Dauer: 56:33
-- Titelerklärung:
+- Titelerklärung: ab 8:00 
 - Beide haben zu Beginn eine "sanfte" Stimme, Jan ist nicht besonders gut drauf
 - Olli hat seine Wohnung aufgeräumt und redet über Reinlichkeit, Jan hat eine Schnecke im Hausflur und ist drauf
 - Olli hat bei mymonk.de eine Studie zum Thema "Sauberkeit der Wohnung" gelesen und spricht über die Ordnung seiner Bücher und Schallplatten, Jan redet über die Ordnung auf seiner Festplatte
