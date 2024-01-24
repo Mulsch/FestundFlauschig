@@ -57,6 +57,7 @@
 - 19.03.2017: Die Fantastischen Vier - Die da
 - 19.03.2017: Erich-Weinert-Ensemble - Auferstanden aus Ruinen
 - 19.03.2017: Rundfunk-Jugendchor Wernigerode - Die Gedanken sind frei
+- 19.03.2017: Queen - I'm going slightly mad (**Auf Playlist nicht auf originaler Position**)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
