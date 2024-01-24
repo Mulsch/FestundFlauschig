@@ -138,6 +138,7 @@
 - 19.03.2017: Klaus Lage - Monopoly
 - 19.03.2017: Bernd Begemann, Die Befreiung - Deutsche Hymne ohne Refrain
 - 19.03.2017: Udo Jürgens - Der Teufel hat den Schnaps gemacht
+- 19.03.2017: The Soundtrack of our Lives - Nevermore
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
