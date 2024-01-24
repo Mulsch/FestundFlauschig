@@ -53,6 +53,10 @@
 - 05.03.2017: Joel Grey - Two Ladies
 - 12.03.2017: Jacques Palminger, 440hz Trio - Spanky
 - 12.03.2017: Blumfeld - Mein System kennt keine Grenzen
+- 19.03.2017: Zarah Leander - Ich weiß es wird einmal ein Wunder geschehen
+- 19.03.2017: Die Fantastischen Vier - Die da
+- 19.03.2017: Erich-Weinert-Ensemble - Auferstanden aus Ruinen
+- 19.03.2017: Rundfunk-Jugendchor Wernigerode - Die Gedanken sind frei
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -126,7 +130,13 @@
 - 26.02.2017: Thommie Bayer - Der letzte Cowboy
 - 05.03.2017: Elliot Smith - Everything reminds me of her
 - 12.03.2017: Ryan Adams - Do You Still Love Me?
-  - *Muss man laut Olli auf voller Lautstärke hören*  
+  - *Muss man laut Olli auf voller Lautstärke hören*
+- 19.03.2017: Coldplay - Spies
+- 19.03.2017: Fred Bertelmann - Der lachende Vagabund
+- 19.03.2017: Lale Andersen - Ein Schiff wird kommen
+- 19.03.2017: Klaus Lage - Monopoly
+- 19.03.2017: Bernd Begemann, Die Befreiung - Deutsche Hymne ohne Refrain
+- 19.03.2017: Udo Jürgens - Der Teufel hat den Schnaps gemacht
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
