@@ -11,6 +11,7 @@ _**Bücher:**_
 - "Der Tag an dem Louis gefressen wurde" (Jan, F&F, 29.01.2017, 24:30)
 - "Der Krokodildieb" (Olli, F&F, 29.01.2017, 25:30)
 - "Dienstags bei Morrie" von Mitch Albom (Olli, F&F, 29.01.2017, 01:00:30)
+- "Der größere Teil der Welt" von Jennifer Egan (Olli, F&F, 19.03.2017, 50:10)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
