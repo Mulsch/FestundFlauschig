@@ -4,7 +4,7 @@
 - Hatte einen Hamster namens Speedy (S&S, 29.09.2013, 34:30)
 - War mal im Krankenhaus wegen Bandscheibe (S&S, 16.02.2014, 10:30) und hat sich mit 10 Jahren im Freizeitpark den Arm gebrochen (S&S, F52, 14:00) und den linken Arm beim Fußball angebrochen (S&S, F52, 15:00)
 - War Passivkiffer (S&S, 13.04.2014, 16:00 und F&F, 22.05.2016, 17:00) und nie wirklich betrunken (F&F, 22.05.2016, 16:30)
-- Geburtstag der Oma: 14.12. (S&S, 14.12.2014, *Zeitstempel unbekannt*)
+- Geburtstag der Oma: 14.12.1930 oder 1936 (S&S, 14.12.2014, *Zeitstempel unbekannt*), (F&F, 26.03.2017, 33:30)
 - Geburtstag der Schwester: 21.12. (S&S, 21.12.2014, 7:30)
 - Hat in Bremen in der Bismarckstraße 69 und später in der Hamburger Str. gewohnt (S&S, 03.05.2015, 10:20)
 - Lieblingsdönerladen: Kebapland, Venloer Str. 385 in Köln (S&S, 13.12.2015, *Zeitstempel unbekannt*)
