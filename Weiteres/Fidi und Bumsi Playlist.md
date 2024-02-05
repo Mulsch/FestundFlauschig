@@ -141,6 +141,7 @@
 - 19.03.2017: Udo Jürgens - Der Teufel hat den Schnaps gemacht
 - 19.03.2017: The Soundtrack of our Lives - Nevermore
 - 26.03.2017: Michael Kiwanuka - Cold Little Heart
+- 26.03.2017: Rüdiger Bierhorst - Ich bin nicht frei
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
