@@ -12,6 +12,7 @@ _**Bücher:**_
 - "Der Krokodildieb" (Olli, F&F, 29.01.2017, 25:30)
 - "Dienstags bei Morrie" von Mitch Albom (Olli, F&F, 29.01.2017, 01:00:30)
 - "Der größere Teil der Welt" von Jennifer Egan (Olli, F&F, 19.03.2017, 50:10)
+- "Der Mann, der Inseln liebte" von D. H. Lawrence (Olli, F&F, 26.03.2017, 36:55)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
