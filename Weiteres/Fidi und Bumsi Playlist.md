@@ -58,6 +58,7 @@
 - 19.03.2017: Erich-Weinert-Ensemble - Auferstanden aus Ruinen
 - 19.03.2017: Rundfunk-Jugendchor Wernigerode - Die Gedanken sind frei
 - 19.03.2017: Queen - I'm going slightly mad (**Auf Playlist nicht auf originaler Position**)
+- 26.03.2017: Erdmöbel - Busfahrt
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -139,6 +140,7 @@
 - 19.03.2017: Bernd Begemann, Die Befreiung - Deutsche Hymne ohne Refrain
 - 19.03.2017: Udo Jürgens - Der Teufel hat den Schnaps gemacht
 - 19.03.2017: The Soundtrack of our Lives - Nevermore
+- 26.03.2017: Michael Kiwanuka - Cold Little Heart
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
