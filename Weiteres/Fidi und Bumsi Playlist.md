@@ -59,6 +59,7 @@
 - 19.03.2017: Rundfunk-Jugendchor Wernigerode - Die Gedanken sind frei
 - 19.03.2017: Queen - I'm going slightly mad (**Auf Playlist nicht auf originaler Position**)
 - 26.03.2017: Erdmöbel - Busfahrt
+- 02.04.2017: Slime - Sie wollen wieder schießen (dürfen)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -150,6 +151,8 @@
 - 18.12.2016: Lee Hazlewood - Love and Other Crimes (Bela B)
 - 18.12.2016: N.W.A. - Just Don't Bite It (Bela B)
 - 05.03.2017: Damien Rice - Cannonball (Ralph Ruthe)
+- 02.04.2017: The Hellacopters - You're Too Good (Marco Göllner)
+- 02.04.2017: Glen Hansard - Bird of Sorrow (Marco Göllner)
 
 **Nicht erwähnte Songs auf der Playlist**
 - 11.12.2016: Kollegah - Bei Sonnenuntergang
