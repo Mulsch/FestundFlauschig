@@ -24,3 +24,4 @@
 - Folge vom 19.03.2017: Das Leben des Furz
 - Folge vom 26.03.2017: Der Pedo als Opfer der Digitalisierung
 - Folge vom 02.04.2017: Marco Göllner zu Gast
+- Folge vom 09.04.2017: Klaus der Clown
