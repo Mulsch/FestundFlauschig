@@ -60,6 +60,7 @@
 - 19.03.2017: Queen - I'm going slightly mad (**Auf Playlist nicht auf originaler Position**)
 - 26.03.2017: Erdmöbel - Busfahrt
 - 02.04.2017: Slime - Sie wollen wieder schießen (dürfen)
+- 09.04.2017: Father John Misty - Pure Comedy (**Fehlt auf der Playlist**)
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -144,6 +145,7 @@
 - 26.03.2017: Michael Kiwanuka - Cold Little Heart
 - 26.03.2017: Rüdiger Bierhorst - Ich bin nicht frei
 - 26.03.2017: Dover - DJ
+- 09.04.2017: Stephan Sulke - Der Typ von nebenan
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
