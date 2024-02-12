@@ -146,6 +146,7 @@
 - 26.03.2017: Rüdiger Bierhorst - Ich bin nicht frei
 - 26.03.2017: Dover - DJ
 - 09.04.2017: Stephan Sulke - Der Typ von nebenan
+- 09.04.2017: dEUS - Bad Timing
 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
