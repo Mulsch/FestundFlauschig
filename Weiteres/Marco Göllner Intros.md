@@ -25,3 +25,4 @@
 - Folge vom 26.03.2017: Der Pedo als Opfer der Digitalisierung
 - Folge vom 02.04.2017: Marco Göllner zu Gast
 - Folge vom 09.04.2017: Klaus der Clown
+- Folge vom 16.04.2017: "Ihr esst noch ganz was anderes" mit der Oma von Marco Göllner
