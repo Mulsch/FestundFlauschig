@@ -3,6 +3,7 @@ _**Gesundheit:**_
 - Urea und Kokosfett aus dem Asia-Laden für eine weiche Haut (Jan, F&F, 26.03.2017, 1:24:00)
   
 _**Kochen:**_
+- Sparschäler "Lurch Universal" (Jan, F&F, 17.07.2016, 46:30) - [Link](https://www.kochform.de/Lurch-Sparschaeler-Universal.htm?affiliate=BingShopping&msclkid=23d4ca0df342183080d2af69514d2f95)
 - Frische Ananas verdirbt Quark (Jan, F&F, 16.04.2017, 8:10)
 - Dosenmilch 2-3 Stunden in heißem Wasser köcheln lassen erzeugt Karamell (Jan, F&F, 16.04.2017, 10:30)
 
@@ -62,5 +63,5 @@ _**YouTube:**_
 
 _**Verschiedenes:**_
 - Newsletter "Vollmond Info" (Olli, F&F, 06.07.2016, 18:30)
-- Sparschäler "Lurch Universal" (Jan, F&F, 17.07.2016, 46:30) - [Link](https://www.kochform.de/Lurch-Sparschaeler-Universal.htm?affiliate=BingShopping&msclkid=23d4ca0df342183080d2af69514d2f95)
+
 
