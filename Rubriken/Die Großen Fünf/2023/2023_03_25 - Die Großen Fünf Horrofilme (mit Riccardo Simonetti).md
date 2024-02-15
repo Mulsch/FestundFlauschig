@@ -1,4 +1,4 @@
-Platz | Jan | Olli | Riccardo
+Platz | Jan | Olli | Riccardo Simonetti
 ------ | ------|------|----------
 5      |Nightmare on Elm Street |Rosemary's Baby                   |Scream
 4      |The Cube                | Das Omen                         |It follows 
