@@ -1,6 +1,7 @@
 _**Gesundheit:**_
 - Ayran und Selter bei Magenproblemen (Olli, F&F, 29.05.2016, 16:30)
 - Urea und Kokosfett aus dem Asia-Laden für eine weiche Haut (Jan, F&F, 26.03.2017, 1:24:00)
+- Frische Ananas verdirbt Quark (Jan, F&F, 16.04.2017, 8:10)
 
 _**Bücher:**_  
 - "Kind, versprich mir, dass du dich erschießt" (Olli, F&F, 05.06.2016, 30:30)
