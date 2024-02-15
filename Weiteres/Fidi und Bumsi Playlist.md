@@ -147,8 +147,9 @@
 - 26.03.2017: Dover - DJ
 - 09.04.2017: Stephan Sulke - Der Typ von nebenan
 - 09.04.2017: dEUS - Bad Timing
-  - *Am besten nachts im Auto hören, nachdem man sich mit der Freundin gestritten hat* 
-
+  - *Am besten nachts im Auto hören, nachdem man sich mit der Freundin gestritten hat*
+- 16.04.2017: The War on Drugs - Red Eyes
+  - *Der perfekte Auto-Song, einer von Ollis großen Geheimtipps*
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
