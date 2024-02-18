@@ -1,6 +1,6 @@
 - Dauer: 1:18:39
 - Titelerklärung: ab 29:15
-- Beide feiern Ostersonntag, bereits das fünfte gemeinsame
+- Beide feiern Ostersonntag, bereits das fünfte gemeinsame Osterfest
 - Gespräche über Jans aktuellen Karriereerfolg ("Die schnellste Starkarriere"), Westernhagens Trennung von seiner ehemaligen Freundin und Skandale
 - Jan rätselt über das Leben der Gewinner von DSDS
 - Olli denkt an das Gefühl der letzten Woche, welches er nicht artikulieren konnte und macht es stattdessen als Geschmack: Apfel, nachdem man ihn mit einem Messer geschnitten hat, welches vorher eine Zwiebel geschnitten hat
