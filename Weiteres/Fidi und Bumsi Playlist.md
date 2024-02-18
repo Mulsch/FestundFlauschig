@@ -62,6 +62,8 @@
 - 02.04.2017: Slime - Sie wollen wieder schießen (dürfen)
 - 09.04.2017: Father John Misty - Pure Comedy (**Fehlt auf der Playlist**)
 - 16.04.2017: Sport - Unter den Wolken
+- 23.11.2023: Olli Schulz - Einfach So
+- 
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
@@ -151,6 +153,8 @@
   - *Am besten nachts im Auto hören, nachdem man sich mit der Freundin gestritten hat*
 - 16.04.2017: The War on Drugs - Red Eyes
   - *Der perfekte Auto-Song, einer von Ollis großen Geheimtipps*
+- 23.11.2023: Christie Nicholls - In Ordnung
+- 23.11.2023: Bleachers - Modern World 
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
