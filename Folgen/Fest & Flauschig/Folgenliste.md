@@ -222,75 +222,75 @@
 - Folge 372 / 222: Kein schlechtes Wort feat. Resident DJ Bjarne Mädel - 19.04.2020
 - Folge 373 / 223: Fest & Flauschig Zuhause - 20 - 21.04.2020
 - Folge 374 / 224: Fest & Flauschig Zuhause - 21 - 22.04.2020
-- Folge 375 / 225: Fest & Flauschig Zuhause - 22 - 22.04.2020
-- Folge 376 / 226: Fest & Flauschig Zuhause - 23 - 23.04.2020
-- Folge 377 / 227: Schlafanzugtag - 25.04.2020
-- Folge 378 / 228: Fest & Flauschig Zuhause - 24 - 28.04.2020
-- Folge 379 / 229: Quesadilla Mokassins - 02.05.2020
-- Folge 380 / 230: Fest & Flauschig Zuhause - 25 - 05.05.2020
-- Folge 381 / 231: Der Feuersalamander scheißt sein Kind aus und geht  - 09.05.2020
-- Folge 382 / 232: Fest & Flauschig Zuhause - 26 - 12.05.2020
-- Folge 383 / 233: SECRET LEVEL! (Bitte niemandem sagen, dass es diese Folge gibt! GEHEIM! TOP SECRET!) - 14.05.2020
-- Folge 384 / 234: Impulse für Aufschwung und Wirtschaft  - 16.05.2020
-- Folge 385 / 235: Fest & Flauschig Zuhause - 27 - 19.05.2020
-- Folge 386 / 236: unauffaelliger.0fb2cc74-4a75-dateiname-c1a19e7ff-buttplugdc4.FuF.wav - 21.05.2020
-- Folge 387 / 237: Die Bücherwand in deinem Gesicht - 23.05.2020
-- Folge 388 / 238: Fest & Flauschig Zuhause - 28 - 26.05.2020
-- Folge 389 / 239: Betriebsversammlung: Dr. Alexander Kekulé – das Musical (Aerosol) - 28.05.2020
-- Folge 390 / 240: Schweineschwarten im Supermarkt - 30.05.2020
-- Folge 391 / 241: Fest & Flauschig Zuhause - 29 - 02.06.2020
-- Folge 392 / 242: Katy Perry - Dark Horse - 04.06.2020
-- Folge 393 / 243: Hurra, der Wels geht unter! - 06.06.2020
-- Folge 394 / 244: Fest & Flauschig Zuhause - 30 - 09.06.2020
-- Folge 395 / 245: 12062020olympiaA2M_DP-GB/BoyOnBoy - 11.06.2020
-- Folge 396 / 246: Das Geheimnis der Marzipandecke - 13.06.2020
-- Folge 397 / 247: Fest & Flauschig Zuhause - 31 - 16.06.2020
-- Folge 398 / 248: 5% in Fulda - 18.06.2020
-- Folge 399 / 249: Die alte Soße gehört auf den Croque - 20.06.2020
-- Folge 400 / 250: Fest & Flauschig Zuhause - 32 - 23.06.2020
-- Folge 401 / 251: THX, VHS und FSK - 25.06.2020
-- Folge 402 / 252: Bier & Weißweinschorle - 27.06.2020
-- Folge 403 / 253: Fest & Flauschig Zuhause - 33 - 30.06.2020
-- Folge 404 / 254: Die Yogalehrerin - 04.07.2020
-- Folge 405 / 255: Back to life, back to reality  - 15.08.2020
-- Folge 406 / 256: Auf die Hand - KW 34/2020 - 18.08.2020
-- Folge 407 / 257: Schweinebusen für alle - 22.08.2020
-- Folge 408 / 258: Auf die Hand - KW 35/2020 - 25.08.2020
-- Folge 409 / 259: Maske auf, die Trottel kommen! - 29.08.2020
-- Folge 410 / 260: Auf die Hand - KW 36/2020 - 01.09.2020
-- Folge 411 / 261: Sicherheit geht vor  - 05.09.2020
-- Folge 412 / 262: Auf die Hand - KW 37/2020 - 08.09.2020
-- Folge 413 / 263: Willkommen im Hegelverein  - 12.09.2020
-- Folge 414 / 264: Auf die Hand - KW 38/2020 - 15.09.2020
-- Folge 415 / 265: Zwei CIS-Dudes am Arsch - 19.09.2020
-- Folge 416 / 266: Auf die Hand - KW 39/2020 - 22.09.2020
-- Folge 417 / 267: Die Bayern kommen - 26.09.2020
-- Folge 418 / 268: Auf die Hand - KW 40/2020  - 29.09.2020
-- Folge 419 / 269: Sehnsucht nach New York / Fernsehabend mit Jan und Olli - 03.10.2020
-- Folge 420 / 270: Auf die Hand - KW 41/2020 - 06.10.2020
-- Folge 421 / 271: Wahn und Infrastruktur - 10.10.2020
+- Folge 375 / 225: Fest & Flauschig Zuhause - 22 - 23.04.2020
+- Folge 376 / 226: Fest & Flauschig Zuhause - 23 - 24.04.2020
+- Folge 377 / 227: Schlafanzugtag - 26.04.2020
+- Folge 378 / 228: Fest & Flauschig Zuhause - 24 - 29.04.2020
+- Folge 379 / 229: Quesadilla Mokassins - 03.05.2020
+- Folge 380 / 230: Fest & Flauschig Zuhause - 25 - 06.05.2020
+- Folge 381 / 231: Der Feuersalamander scheißt sein Kind aus und geht  - 10.05.2020
+- Folge 382 / 232: Fest & Flauschig Zuhause - 26 - 13.05.2020
+- Folge 383 / 233: SECRET LEVEL! (Bitte niemandem sagen, dass es diese Folge gibt! GEHEIM! TOP SECRET!) - 15.05.2020
+- Folge 384 / 234: Impulse für Aufschwung und Wirtschaft  - 17.05.2020
+- Folge 385 / 235: Fest & Flauschig Zuhause - 27 - 20.05.2020
+- Folge 386 / 236: unauffaelliger.0fb2cc74-4a75-dateiname-c1a19e7ff-buttplugdc4.FuF.wav - 22.05.2020
+- Folge 387 / 237: Die Bücherwand in deinem Gesicht - 24.05.2020
+- Folge 388 / 238: Fest & Flauschig Zuhause - 28 - 27.05.2020
+- Folge 389 / 239: Betriebsversammlung: Dr. Alexander Kekulé – das Musical (Aerosol) - 29.05.2020
+- Folge 390 / 240: Schweineschwarten im Supermarkt - 31.05.2020
+- Folge 391 / 241: Fest & Flauschig Zuhause - 29 - 03.06.2020
+- Folge 392 / 242: Katy Perry - Dark Horse - 05.06.2020
+- Folge 393 / 243: Hurra, der Wels geht unter! - 07.06.2020
+- Folge 394 / 244: Fest & Flauschig Zuhause - 30 - 10.06.2020
+- Folge 395 / 245: 12062020olympiaA2M_DP-GB/BoyOnBoy - 12.06.2020
+- Folge 396 / 246: Das Geheimnis der Marzipandecke - 14.06.2020
+- Folge 397 / 247: Fest & Flauschig Zuhause - 31 - 17.06.2020
+- Folge 398 / 248: 5% in Fulda - 19.06.2020
+- Folge 399 / 249: Die alte Soße gehört auf den Croque - 21.06.2020
+- Folge 400 / 250: Fest & Flauschig Zuhause - 32 - 24.06.2020
+- Folge 401 / 251: THX, VHS und FSK - 26.06.2020
+- Folge 402 / 252: Bier & Weißweinschorle - 28.06.2020
+- Folge 403 / 253: Fest & Flauschig Zuhause - 33 - 01.07.2020
+- Folge 404 / 254: Die Yogalehrerin - 05.07.2020
+- Folge 405 / 255: Back to life, back to reality  - 16.08.2020
+- Folge 406 / 256: Auf die Hand - KW 34/2020 - 19.08.2020
+- Folge 407 / 257: Schweinebusen für alle - 23.08.2020
+- Folge 408 / 258: Auf die Hand - KW 35/2020 - 26.08.2020
+- Folge 409 / 259: Maske auf, die Trottel kommen! - 30.08.2020
+- Folge 410 / 260: Auf die Hand - KW 36/2020 - 02.09.2020
+- Folge 411 / 261: Sicherheit geht vor  - 06.09.2020
+- Folge 412 / 262: Auf die Hand - KW 37/2020 - 09.09.2020
+- Folge 413 / 263: Willkommen im Hegelverein  - 13.09.2020
+- Folge 414 / 264: Auf die Hand - KW 38/2020 - 16.09.2020
+- Folge 415 / 265: Zwei CIS-Dudes am Arsch - 20.09.2020
+- Folge 416 / 266: Auf die Hand - KW 39/2020 - 23.09.2020
+- Folge 417 / 267: Die Bayern kommen - 27.09.2020
+- Folge 418 / 268: Auf die Hand - KW 40/2020  - 30.09.2020
+- Folge 419 / 269: Sehnsucht nach New York / Fernsehabend mit Jan und Olli - 04.10.2020
+- Folge 420 / 270: Auf die Hand - KW 41/2020 - 07.10.2020
+- Folge 421 / 271: Wahn und Infrastruktur - 11.10.2020
 - Folge 422 / 272: Auf die Hand - KW 42/2020 - 14.10.2020
-- Folge 423 / 273: Barfuß auf der Rasierklinge - 17.10.2020
-- Folge 424 / 274: Auf die Hand - KW 43/2020 - 20.10.2020
-- Folge 425 / 275: Hacker und Checker - 24.10.2020
-- Folge 426 / 276: Auf die Hand - KW 44/2020  - 27.10.2020
-- Folge 427 / 277: Too drunk to fuck - 31.10.2020
-- Folge 428 / 278: Auf die Hand - KW 45/2020 - 03.11.2020
-- Folge 429 / 279: ficki ficki licki licki - 07.11.2020
-- Folge 430 / 280: Auf die Hand - KW 46/2020 - 10.11.2020
-- Folge 431 / 281: Bettgeschichten und Bolognese - 14.11.2020
-- Folge 432 / 282: Auf die Hand - KW 47/2020 - 17.11.2020
-- Folge 433 / 283: Tresentalk mit Jan & Olli - 21.11.2020
-- Folge 434 / 284: Auf die Hand - KW 48/2020 - 24.11.2020
-- Folge 435 / 285: Raus aus der Verwahrlosung  - 28.11.2020
-- Folge 436 / 286: Auf die Hand - KW 49/2020 - 01.12.2020
-- Folge 437 / 287: Die Wut ist die Glut - 05.12.2020
-- Folge 438 / 288: Auf die Hand - KW 50/2020 - 08.12.2020
-- Folge 439 / 289: Boomercringe - 12.12.2020
-- Folge 440 / 290: #BOOMERCRINGE 1 - 15.12.2020
+- Folge 423 / 273: Barfuß auf der Rasierklinge - 18.10.2020
+- Folge 424 / 274: Auf die Hand - KW 43/2020 - 21.10.2020
+- Folge 425 / 275: Hacker und Checker - 25.10.2020
+- Folge 426 / 276: Auf die Hand - KW 44/2020  - 28.10.2020
+- Folge 427 / 277: Too drunk to fuck - 01.11.2020
+- Folge 428 / 278: Auf die Hand - KW 45/2020 - 04.11.2020
+- Folge 429 / 279: ficki ficki licki licki - 08.11.2020
+- Folge 430 / 280: Auf die Hand - KW 46/2020 - 11.11.2020
+- Folge 431 / 281: Bettgeschichten und Bolognese - 15.11.2020
+- Folge 432 / 282: Auf die Hand - KW 47/2020 - 18.11.2020
+- Folge 433 / 283: Tresentalk mit Jan & Olli - 22.11.2020
+- Folge 434 / 284: Auf die Hand - KW 48/2020 - 25.11.2020
+- Folge 435 / 285: Raus aus der Verwahrlosung  - 29.11.2020
+- Folge 436 / 286: Auf die Hand - KW 49/2020 - 02.12.2020
+- Folge 437 / 287: Die Wut ist die Glut - 06.12.2020
+- Folge 438 / 288: Auf die Hand - KW 50/2020 - 09.12.2020
+- Folge 439 / 289: Boomercringe - 13.12.2020
+- Folge 440 / 290: #BOOMERCRINGE 1 - 16.12.2020
 - Folge 441 / 291: Weihnachten zuhause - 20.12.2020
-- Folge 442 / 292: Best of Fest & Flauschig 2016 - 2020 - 26.12.2020
-- Folge 443 / 293: Gamechanger für die Fremdenlegion - 23.01.2021
+- Folge 442 / 292: Best of Fest & Flauschig 2016 - 2020 - 27.12.2020
+- Folge 443 / 293: Gamechanger für die Fremdenlegion - 24.01.2021
 - Folge 444 / 294: #BOOMERCRINGE 2 - 27.01.2021
 - Folge 445 / 295: Haarriss im Phasenprüfer - 30.01.2021
 - Folge 446 / 296: #BOOMERCRINGE 3 - 03.02.2021
