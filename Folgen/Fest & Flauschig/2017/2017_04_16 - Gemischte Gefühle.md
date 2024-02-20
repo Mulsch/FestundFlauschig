@@ -16,6 +16,12 @@
 - Gespräche über Kerstin Ott, Tokio Hotels "wasted career", die Band *Echt!* und Jan Plewka
 - Jan hat den Film *Sing* gesehen, in dem Olli ein Schaf vertonte und redet über Seth McFarlane
 - Gespräche über Bastian Pastewka (soll Gast werden), den angekündigten Narzissmus-Test sowie eine Ausgabe aus dem Altersheim
-- Weiter: 46:05
+- *Nein, doch, ohh! Einspieler*
+- Gespräche über das Osterfest, den toten Hacker "Tron" [^2] und Verschwörungstheorien
+- Olli hat den Video-Podcast "Frag den Lesch" geschaut und das Thema "Mondphasen und Schlafstörungen"
+
+
+
 
 [^1]: https://de.wikipedia.org/wiki/Anschlag_auf_den_Mannschaftsbus_von_Borussia_Dortmund
+[^2]: https://de.wikipedia.org/wiki/Tron_(Hacker)
