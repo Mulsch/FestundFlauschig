@@ -62,8 +62,8 @@
 - 02.04.2017: Slime - Sie wollen wieder schießen (dürfen)
 - 09.04.2017: Father John Misty - Pure Comedy (**Fehlt auf der Playlist**)
 - 16.04.2017: Sport - Unter den Wolken
+- 16.04.2017: Seth MacFarlane, Norah Jones - Two Sleepy People
 - 23.11.2023: Olli Schulz - Einfach So
-- 
   
 **Hinzugefügt von Olli:**
 - 15.05.2016: Trio - Los Paul
