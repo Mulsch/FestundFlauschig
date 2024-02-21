@@ -154,7 +154,8 @@
 - 16.04.2017: The War on Drugs - Red Eyes
   - *Der perfekte Auto-Song, einer von Ollis großen Geheimtipps*
 - 23.11.2023: Christie Nicholls - In Ordnung
-- 23.11.2023: Bleachers - Modern World 
+- 23.11.2023: Bleachers - Modern World
+  
 **Hinzugefügt von Gästen:**
 - 12.06.2016: Judge Dread - Bring back the Skins (Thees Uhlmann)
 - 31.07.2016: Sufjan Stevens - Death with Dignity (Heinz Strunk)
