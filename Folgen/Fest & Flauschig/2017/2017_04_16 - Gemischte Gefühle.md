@@ -18,7 +18,11 @@
 - Gespräche über Bastian Pastewka (soll Gast werden), den angekündigten Narzissmus-Test sowie eine Ausgabe aus dem Altersheim
 - *Nein, doch, ohh! Einspieler*
 - Gespräche über das Osterfest, den toten Hacker "Tron" [^2] und Verschwörungstheorien
-- Olli hat den Video-Podcast "Frag den Lesch" geschaut und das Thema "Mondphasen und Schlafstörungen"
+- Olli hat den Video-Podcast "Frag den Lesch" geschaut und bespricht mit Jan das Thema "Mondphasen und Schlafstörungen"
+- Gespräche über Ollis Füße / Fußgeruch, Sozialwohnungen in Bremen Nord und die Grünkohlsaison
+- Armin Mewes wird thematisiert & Jan nutzt den Begriff "Zerlaufene Oma", berichtet anschließend von seiner Sendung mit Mark Benecke
+- Olli nennt Su die "Medien-MILF" und macht den Wortwitz "Magermilf und Vollmilf - Die Milf ist sauer geworden"
+- Abschlussgespräch über Donald Trump und die Politik
 
 
 
