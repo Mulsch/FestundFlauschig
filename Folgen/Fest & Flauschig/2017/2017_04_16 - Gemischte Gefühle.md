@@ -22,7 +22,7 @@
 - Gespräche über Ollis Füße / Fußgeruch, Sozialwohnungen in Bremen Nord und die Grünkohlsaison
 - Armin Mewes wird thematisiert & Jan nutzt den Begriff "Zerlaufene Oma", berichtet anschließend von seiner Sendung mit Mark Benecke
 - Olli nennt Su die "Medien-MILF" und macht den Wortwitz "Magermilf und Vollmilf - Die Milf ist sauer geworden"
-- Abschlussgespräch über Donald Trump und die Politik
+- Abschlussgespräch über Donald Trump und die Politik, Jan reist demnächst in die USA und kündigt Olli vorher schnell noch die Freundschaft
 
 
 
