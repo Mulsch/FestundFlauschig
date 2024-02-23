@@ -1,0 +1,16 @@
+- Dauer: 1:30:14
+- Titelerklärung: ab 2:55
+- Beide begrüßen sich nach ihren Urlauben in gewohnter Qualität
+- Olli hat sich ein Thailand ein Penispiercing machen lassen
+- Jan hat eine Preisverleihung moderiert und lässt Olli grüßen
+- Jan war beim "Hamilton" Musical und spricht über das Duellieren mit Pistolen
+- Olli möchte, dass Jan mal mit seiner Mutter ins Musical geht und hat Magenprobleme vom indischen Essen
+- Jan erfindet die "Erasco-Austauschprogramme"
+- Olli moderiert die "50 schönsten Rapper" nebenbei beim Podcast
+- Gespräch über Jans Auftritt bei Seth Meyers und erzählte dort mit ihm über Til Schweiger
+- Olli wird immer größerer Fan von Spotify und regt sich über den fehlenden Headphone Jack beim iPhone auf
+- Jan überlegt, ein Musical über die Entstehung des Grundgesetzes zu schreiben
+- Gespräche über die letzten Worte Adenauers, Görings Kondom-Monopol und Kurt Schumacher
+- Jan erzählt, dass Jason Sudeikis ebenfalls bei Seth Meyers anwesend war und wie er sich auf dem Rückflug mit orthodoxen Juden anlegen wollte
+- Jan erzählt weiterhin von seiner Begegnung im Flugzeug mit einem Ungarn, der absolut nicht nach Deutschland wollte
+- Weiter: 44:20
