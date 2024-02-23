@@ -52,7 +52,7 @@ _**Filme:**_
 - "Weiner" (Jan, F&F, 19.02.2017, 43:50)
   
 _**Hörspiele und Podcasts:**_
-- Marco Göllner: "Fallen" (Olli, F&F, 04.09.2016, 1:17:40)
+- "Fallen" von Marco Göllner (Olli, F&F, 04.09.2016, 1:17:40)
 - "Der talentierte Mr. Vossen" (Olli, F&F, 09.10.2016, 30:10)
 - "Edgar Allen Poe" (Olli, F&F, 16.10.2016, 27:45)
 - "Bilals Weg in den Terror" (Olli, F&F, 05.03.2017, 52:45)
