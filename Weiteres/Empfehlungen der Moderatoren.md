@@ -20,7 +20,6 @@ _**Bücher:**_
 - "Der größere Teil der Welt" von Jennifer Egan (Olli, F&F, 19.03.2017, 50:10)
 - "Der Mann, der Inseln liebte" von D. H. Lawrence (Olli, F&F, 26.03.2017, 36:55)
 - "Als wir für immer jung waren" von Matthias Kalle (Olli, F&F, 09.04.2017, 37:20)
-- "Letterman: The Last Giant of Late Night" von Jason Zinoman (Jan, F&F, 30.04.2017, 24:30)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
@@ -57,6 +56,8 @@ _**Hörspiele und Podcasts:**_
 - "Edgar Allen Poe" (Olli, F&F, 16.10.2016, 27:45)
 - "Bilals Weg in den Terror" (Olli, F&F, 05.03.2017, 52:45)
 - "Einschlafgeschichten für Männer" von Jacques Palminger (Olli, F&F, 12.03.2017, 42:30)
+- "Letterman: The Last Giant of Late Night" von Jason Zinoman (Jan, F&F, 30.04.2017, 24:30)
+- "Der Tastenficker: An was ich mich so erinnern kann" von Flake (Olli, F&F, 30.04.2017, 25:35)
 
 _**YouTube:**_
 - "Orson Welles Wine Commercial" (Olli, F&F, 27.11.2016, 1:13:30)
