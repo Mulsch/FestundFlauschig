@@ -63,6 +63,8 @@
 - 09.04.2017: Father John Misty - Pure Comedy (**Fehlt auf der Playlist**)
 - 16.04.2017: Sport - Unter den Wolken
 - 16.04.2017: Seth MacFarlane, Norah Jones - Two Sleepy People
+- 30.04.2017: Leslie Odom Jr. - Alexander Hamilton
+- 30.04.2017: Jonathan Groff - You'll Be Back (**Fehlt auf der Playlist**)
 - 23.11.2023: Olli Schulz - Einfach So
   
 **Hinzugefügt von Olli:**
