@@ -20,6 +20,7 @@ _**Bücher:**_
 - "Der größere Teil der Welt" von Jennifer Egan (Olli, F&F, 19.03.2017, 50:10)
 - "Der Mann, der Inseln liebte" von D. H. Lawrence (Olli, F&F, 26.03.2017, 36:55)
 - "Als wir für immer jung waren" von Matthias Kalle (Olli, F&F, 09.04.2017, 37:20)
+- "Letterman: The Last Giant of Late Night" von Jason Zinoman (Jan, F&F, 30.04.2017, 24:30)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
