@@ -27,3 +27,4 @@
 - Folge vom 09.04.2017: Klaus der Clown
 - Folge vom 16.04.2017: "Ihr esst noch ganz was anderes" mit der Oma von Marco Göllner
 - Folge vom 23.04.2017: Der Bär und der Igel (Englisch / Deutsch)
+- Folge vom 30.04.2017: Oskars geile Oma
