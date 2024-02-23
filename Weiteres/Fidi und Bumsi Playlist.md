@@ -153,7 +153,8 @@
   - *Am besten nachts im Auto hören, nachdem man sich mit der Freundin gestritten hat*
 - 16.04.2017: The War on Drugs - Red Eyes
   - *Der perfekte Auto-Song, einer von Ollis großen Geheimtipps*
-- 23.04.2017: Eels - Novacaine For The Soul 
+- 23.04.2017: Eels - Novacaine For The Soul
+- 23.04.2017: AC/DC - Down Payment Blues
 - 23.11.2023: Christie Nicholls - In Ordnung
 - 23.11.2023: Bleachers - Modern World
   
