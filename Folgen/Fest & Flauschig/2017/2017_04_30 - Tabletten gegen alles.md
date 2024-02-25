@@ -13,4 +13,7 @@
 - Gespräche über die letzten Worte Adenauers, Görings Kondom-Monopol und Kurt Schumacher
 - Jan erzählt, dass Jason Sudeikis ebenfalls bei Seth Meyers anwesend war und wie er sich auf dem Rückflug mit orthodoxen Juden anlegen wollte
 - Jan erzählt weiterhin von seiner Begegnung im Flugzeug mit einem Ungarn, der absolut nicht nach Deutschland wollte
-- Weiter: 44:20
+- Gespräche über Reisestress, Serien (Better Call Saul, Fargo, Prison Break) und Jans Besuch im Comedy Cellar in New York
+- Olli spricht über *Kraftklub* und erzählt, dass sein Vater früher Heizungen abgelesen hat, unter anderem bei Drafi Deutscher
+- Attentat auf BVB-Bus wird erneut besprochen (s. Folge vom 16.04.2017)
+- Weiter: 57:04
