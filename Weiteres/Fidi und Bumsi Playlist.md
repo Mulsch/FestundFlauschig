@@ -158,6 +158,7 @@
 - 23.04.2017: Eels - Novacaine For The Soul
 - 23.04.2017: AC/DC - Down Payment Blues
 - 30.04.2017: Thin Lizzy - The Boys Are Back In Town
+- 30.04.2017: David Gray - This Year's Love
 - 23.11.2023: Christie Nicholls - In Ordnung
 - 23.11.2023: Bleachers - Modern World
   
