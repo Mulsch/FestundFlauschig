@@ -16,4 +16,12 @@
 - Gespräche über Reisestress, Serien (Better Call Saul, Fargo, Prison Break) und Jans Besuch im Comedy Cellar in New York
 - Olli spricht über *Kraftklub* und erzählt, dass sein Vater früher Heizungen abgelesen hat, unter anderem bei Drafi Deutscher
 - Attentat auf BVB-Bus wird erneut besprochen (s. Folge vom 16.04.2017)
-- Weiter: 57:04
+- Olli erzählt Geschichte aus seiner Zeit als Bühnenbauern bei den Backstreet Boys in Hamburg (ungesichert auf dem Leitergerüst)
+- Jan erzählt vom deutschen Bundeswehr-Soldaten, der am Wiener Flughafen festgenommen wurde[^1]
+- Gespräch über das Ende der Menschheit (Forscher sagen 2050, laut Olli), Ollis Angst vor Spinnen und Nachtfaltern und dem Dilemma, vor dem eigenen Kind keine Schwäche zu zeigen
+- *Ich nehme diesen Preis nicht an Einspieler*
+- Gespräche, ob Podcasts irgendwann Retro sind, alte Filme und Musik - bei Jan klingelt der Hermesbote - und den verlorenen "vertrauten" Postboten
+- Jan erfindet indirekt das Prinzip der Packstation, Olli sucht einen Postboten mit "wilder Vergangenheit" zum Interview
+- Gespräch über Carlo von Thiedemann (Hat Olli als "Tier auf vielen Gebieten" angekündigt)
+
+[^1]: https://www.derstandard.at/consent/tcf/story/2000056744563/deutscher-fluechtlings-soldat-sorgt-fuer-scharfe-kritik-an-behoerden
