@@ -1,0 +1,9 @@
+- Dauer: 1:13:29
+- Titelerklärung:
+- Beide sitzen zusammen im Büro und haben Pastrami gegessen
+- Gespräche über die kommende Sendung "Schulz und Böhmermann" und den Abstieg des Xavier Naidoos
+- Es folgen politische Gespräche (GroKo, Alice Weidel, Rechtsruck in Sachsen)
+- Olli hat im Hotel GNTM geschaut und beide sprechen über Altern in Würde
+- Gespräche über Anna Loos und Jan-Josef Liefers (Berufsjugendliche) und was es heißt, wenn Frauen sagen "Meine Mama ist meine beste Freundin"
+- Jan war in NYC bei Spotify und hat sich zeigen lassen, wie das Unternehmen funktioniert
+- Weiter: 22:00 
