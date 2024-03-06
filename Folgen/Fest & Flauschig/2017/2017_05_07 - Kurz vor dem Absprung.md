@@ -6,4 +6,24 @@
 - Olli hat im Hotel GNTM geschaut und beide sprechen über Altern in Würde
 - Gespräche über Anna Loos und Jan-Josef Liefers (Berufsjugendliche) und was es heißt, wenn Frauen sagen "Meine Mama ist meine beste Freundin"
 - Jan war in NYC bei Spotify und hat sich zeigen lassen, wie das Unternehmen funktioniert
-- Weiter: 22:00 
+- Olli rechtfertigt seine früheren Lästereien gegen Spotify und spricht über Thees Uhlmann
+- Gespräch über Nazis in der Bundeswehr[^1], Jan argumentiert für ein verpflichtendes soziales Jahr oder Wehrpflichtdienst
+- Gespräche über Steuerangelegenheiten der *Böhsen Onkelz* und den Film "Der Junge im gestreiften Pyjama"
+- Jan hat eine neue Apple-Watch und spricht über seine neuen Songs
+- Beide müssen eine Pause machenm weil Olli auf Toilette muss - bleibt 15min dort
+- Gespräche über BibisBeautyPalace (neues Lied), Ollis Doku-Playlist auf YouTube und Jans Blockliste bei Twitter
+- Olli erzählt über seinen YouTube Kanal "MonsieurPiccolini" und den Rapper "Das Bo"
+- Gespräche über die französischen Präsidentschaftswahlen, den Trump Tower in NYC und den verlorenen Krieg in Stalingrad vor 72 Jahren
+- Olli erzählt von der Serie "Xenia", dem Crossover mit "Hercules" und dem Tod von Andreas von der Meden (Synchronstimme von David Hasselhoff)
+- Gespräche über den aktuellen Podcast-Boom, Ollis Handy klingelt zwischendurch und Jans Einladung zu einem Dreier
+- Olli redet von einer betrunkenen Moderation seinerseits mit Visa Vie und den Beatstakes (Hat keine Gage genommen)
+- Beide sprechen über Sauna-Erfahrungen, Jan ging früher öfter in die Sauna
+- Gespräch über eine Doku, die von einem Sex-Camp außerhalb Berlins handelte
+- Olli erzählt erneut von dem Typen, den er von 20 Jahren im Club kennengelernt hat, der Pärchen Geld zum "zugucken" geboten hat
+- Jan plant, auf seiner Website ein "Dreier-Formular" ins Lebens rufen - beide reden anschließend über Sex-Podcasts
+- Jan spielt mehrere Soundeffekte ein
+- *Elmshorn Einspieler*
+- Beide singen "Dieser Weg" und Jan kriegt während der Sendung immer mehr Dreier-Einladungen
+- Der Narzissmus-Test wird ein letztes Mal angeteasert
+
+[^1]: https://www.zeit.de/politik/deutschland/2017-05/bundeswehr-durchsuchung-kasernen
