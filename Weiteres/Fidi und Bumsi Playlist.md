@@ -65,6 +65,8 @@
 - 16.04.2017: Seth MacFarlane, Norah Jones - Two Sleepy People
 - 30.04.2017: Leslie Odom Jr. - Alexander Hamilton
 - 30.04.2017: Jonathan Groff - You'll Be Back (**Fehlt auf der Playlist**)
+- 07.05.2017: POL1Z1STENS0HN - Blasserdünnerjunge macht sein Job
+- 07.05.2017: Bibi H. - How It Is (Wap Bap...)
 - 23.11.2023: Olli Schulz - Einfach So
   
 **Hinzugefügt von Olli:**
