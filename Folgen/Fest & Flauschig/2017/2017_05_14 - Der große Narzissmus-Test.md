@@ -15,5 +15,5 @@
 - Gespräch über "alte Zeiten", die sich die AfD zurückwünscht
 - Der Narzissmus-Test beginnt (37:30)
   - Test: "Wie narzisstisch ist Ihre Einstellung?"
-  - 1. Frage: Vergleich zu anderen Menschen
+    1. Frage: Vergleich zu anderen Menschen
     2. weiter: 39:32 
