@@ -29,3 +29,4 @@
 - Folge vom 23.04.2017: Der Bär und der Igel (Englisch / Deutsch)
 - Folge vom 30.04.2017: Oskars geile Oma
 - Folge vom 07.05.2017: "Wacholder" mit der Oma von Marco Göllner
+- Folge vom 14.05.2017: Marco Göllner singt das Intro
