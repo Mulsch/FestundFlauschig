@@ -1,0 +1,19 @@
+- Dauer: 1:17:45
+- Titelerklärung: ab 3:40 
+- Jan sitzt in seinem neuen Studio, deswegen hallt es ein bisschen
+- Jubiläumssendung, Jan ist allerdings genervt
+- Su ist zum ersten Mal richtig zugeschaltet und soll den Narzissmus-Test moderieren
+- Olli spricht über Tom Schillings neue Platte, Jan wurde bei Radio Fritz abgelehnt, weil er nicht "rockig" genug war
+- Ausführliche Gespräche über Xavier Naidoo, Stephen Hawking & Jans Facebook Account
+- Diskussion über den aktuellen Rechtsruck, Olli redet sich wahnsinnig in Rage
+- Gespräch über die Gaststätte *Wienerwald* und Couscous
+- Olli erzählt von den Eltern seiner damaligen Freundin in den 90ern (Morchelsauce mit Polenta und Hase gegessen)
+- Jan etabliert die *Warme Brille* erneut, beide bauen den Gag weiter aus
+- Gespräch über die frühe Form der Querdenker ("Freidenker") und die *Junge Freiheit*
+- *Arno Dübel Einspieler*
+- Jan hat die Doku "Monarch" gesehen (s. Folge vom 07.05.2017)
+- Gespräch über "alte Zeiten", die sich die AfD zurückwünscht
+- Der Narzissmus-Test beginnt (37:30)
+  - Test: "Wie narzisstisch ist Ihre Einstellung?"
+  - 1. Frage: Vergleich zu anderen Menschen
+    2. weiter: 39:32 
