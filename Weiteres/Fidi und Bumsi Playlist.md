@@ -164,6 +164,7 @@
 - 07.05.2017: Jon Flemming Olsen - Von ganz allein
 - 07.05.2017: Fünf Sterne deluxe - Dein Herz schlägt schneller
 - 07.05.2017: Snow Patrol - Chocolate
+- 14.05.2017: Die Goldene Zitronen - Flimmern
 - 23.11.2023: Christie Nicholls - In Ordnung
 - 23.11.2023: Bleachers - Modern World
   
