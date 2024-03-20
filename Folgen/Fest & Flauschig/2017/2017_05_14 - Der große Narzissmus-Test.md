@@ -16,4 +16,28 @@
 - Der Narzissmus-Test beginnt (37:30)
   - Test: "Wie narzisstisch ist Ihre Einstellung?"
   - Frage 1: Vergleich zu anderen Menschen
-  - weiter: 39:32 
+    - a. bedeutungslos
+    - b. man braucht sich nicht verstecken (Olli)
+    - c. man hat unentdeckte Talente (Jan)
+  - Frage 2: Die "Anderen"
+    - a. Vorbild
+    - b. Fluch und Segen (Jan + Olli)
+    - c. stehen im Wege
+  - Frage 3: Das Andere mich nicht mehr wertschätzen,
+    - a. liegt allein an mir
+    - b. ist nicht schlimm (Jan)
+    - c. liegt an verkannten Fähigkeiten (Olli)
+  - Frage 4: Bei Konflikten
+    - a. muss man überprüfen, was man falsch gemacht hat (Jan)
+    - b. müssen beide Seiten aufeinander zugehen
+    - c. sind die Anderen in der Regel im Unrecht (Olli)
+  - Frage 5: Bei Kränkungen
+    - a. habe ichSelbstwertzweifel 
+    - b. reagiere ich gelassen 
+    - c. bin ich verärgert (Olli)
+    - d. "werde ich offensiv und kraftvoll" (Jan)
+  - Frage 6: Kavier
+    - a. zu teuer (Olli)
+    - b. Delikatesse (Jan)
+    - c. gehört auf die Straße, damit man drauf ausrutscht
+  - Frage 7: 47:45 
