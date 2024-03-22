@@ -20,6 +20,7 @@ _**Bücher:**_
 - "Der größere Teil der Welt" von Jennifer Egan (Olli, F&F, 19.03.2017, 50:10)
 - "Der Mann, der Inseln liebte" von D. H. Lawrence (Olli, F&F, 26.03.2017, 36:55)
 - "Als wir für immer jung waren" von Matthias Kalle (Olli, F&F, 09.04.2017, 37:20)
+- "Von Männern die keine Frau haben" von Haruki Murakami (Olli, F&F, 14.05.2017, 1:13:20)
   
 _**Dokumentationen:**_  
 - "Hot Girls Wanted" (Jan, F&F, 05.06.2016, 54:30)
