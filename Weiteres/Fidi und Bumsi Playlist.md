@@ -166,7 +166,7 @@
 - 07.05.2017: Fünf Sterne deluxe - Dein Herz schlägt schneller
 - 07.05.2017: Snow Patrol - Chocolate
 - 14.05.2017: Die Goldene Zitronen - Flimmern
-- 14.05.2017: 
+- 14.05.2017: Paul McCartney - Early Days
 - 23.11.2023: Christie Nicholls - In Ordnung
 - 23.11.2023: Bleachers - Modern World
   
