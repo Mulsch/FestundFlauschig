@@ -13,7 +13,9 @@
 - *Arno Dübel Einspieler*
 - Jan hat die Doku "Monarch" gesehen (s. Folge vom 07.05.2017)
 - Gespräch über "alte Zeiten", die sich die AfD zurückwünscht
-- Der Narzissmus-Test beginnt (37:30)
+- Jan hat zum ersten Mal *Naked Attraction* geschaut und wertet die Sendung mit Olli aus
+- Gespräch über Komplexe von Bodybuildern
+- Der Narzissmus-Test beginnt[^1] (37:30)
   - Test: "Wie narzisstisch ist Ihre Einstellung?"
   - Frage 1: Vergleich zu anderen Menschen
     - a. bedeutungslos
@@ -32,12 +34,39 @@
     - b. müssen beide Seiten aufeinander zugehen
     - c. sind die Anderen in der Regel im Unrecht (Olli)
   - Frage 5: Bei Kränkungen
-    - a. habe ichSelbstwertzweifel 
+    - a. bekomme ich Selbstwertzweifel 
     - b. reagiere ich gelassen 
     - c. bin ich verärgert (Olli)
     - d. "werde ich offensiv und kraftvoll" (Jan)
   - Frage 6: Kavier
-    - a. zu teuer (Olli)
-    - b. Delikatesse (Jan)
+    - a. ist zu teuer (Olli)
+    - b. ist eine Delikatesse (Jan)
     - c. gehört auf die Straße, damit man drauf ausrutscht
-  - Frage 7: 47:45 
+  - Frage 7: Bei der Partnerwahl
+    - a. Kommt grundsätzlich jeder "gute" Mensch infrage (Jan + Olli)
+    - b. lasse ich mein Herz entscheiden
+    - c. finde ich kaum jemanden, der gut genug für mich wäre
+  - Frage 8: Womit man Erfolg hat,
+    - a. ist wichtiger, als der Erfolg selbst (Olli)
+    - b. entscheidet mit darüber, wie sehr man den Erfolg genießt (Jan)
+    - c. spielt keine Rolle, was zählt, ist der Erfolg allein
+  - Frage 9: Wenn man meine Leistungen nicht anerkennt,
+    - a. werden sie wohl nicht so groß gewesen sein (Olli)
+    - b. frage ich nach den Gründen und gebe mir mehr Mühe (Jan)
+    - c. reagiere ich gereizt und verfalle in Missmut und Grübeln
+  - Frage 10: Die meisten Leute, die ich je bewundert habe,
+    - a. waren wirklich fähiger als ich (Jan)
+    - b. haben mich ermutigt, mehr aus meinen Begabungen zu machen (Olli)
+    - c. haben mich auf kurz oder lang enttäuscht
+  - Auswertung:
+    - Bei Jan sind narzisstische Neigungen "nicht nachweisbar"
+    - Bei Olli sind die narzisstischen Neigungen "normale Beimischung"
+- Olli erzählt von den Beatles
+- *Natascha wertet den Narzissmus-Test aus*
+- Gespräch über Sting, Tantra-Massagen und Marco Polo Reiseführer
+- Beide unterhalten sich, welche Internetseiten sie regelmäßig anschauen (News, YouTube, Twitter / Olli mag brainpickings.org (Seit 2021 "The Marginalian") und LiveLeak), Anschlussgespräche über rotten.com und Pornowerbungen
+- Beide scherzen am Ende über Hitler und unterhalten sich über die Landeswahlen in RLP
+- Beide wünschen Su zum Ende alles Gute zum Muttertag und schlagen vor, Su öfter zuzuschalten
+
+
+[^1]: https://www.seele-und-gesundheit.de/test/narztest.html
